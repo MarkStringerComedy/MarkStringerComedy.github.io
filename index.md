@@ -1,1 +1,3 @@
-This is a test.
+# Index
+
+This is a test index
