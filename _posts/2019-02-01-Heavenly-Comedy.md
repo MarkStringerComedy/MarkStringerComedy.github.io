@@ -1,5 +1,5 @@
 ---
-title: Heavenly Comedy Shepherd's Bush - 2nd Jan 2019
+title: Gig - Heavenly Comedy Shepherd's Bush - 2nd Jan 2019
 ---
 
 # Heavenly Comedy Shepherd's Bush
