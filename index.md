@@ -11,25 +11,20 @@ Just realised that I've got a competition in 12 days time.  And what I need for 
 
 So I've got an idea for something that I might try.
 
-1) Put together 5 minutes of material. Read it through a couple of times and time it.
-
-2) Print it out.
-
-3) Get a dice (die I believe is the singular).
-
-4) Roll it:
-	1 = VERY SLOW
-	2 = QUITE SLOW
-	3 = NORMAL SPEED
-	4 = QUITE FAST
-	5 = CRAZY FAST
-	6 = OPERATIC/RAP/AS IF IT WERE POETRY
-
-5) Do this 5 or 6 times - video it.
-
-6) After each iteration make notes of any new funny ideas that came to you, any changes you might make.  Either note them on the routine or, if you're getting to the point where you're putting the routine down just add them in.
-
-7) I'm going to try this this weekend, I might post the results.
+1. Put together 5 minutes of material.
+1. Read it through a couple of times and time it.
+2. Print it out.
+3. Get a dice (die I believe is the singular).
+4. Roll it:
+*	1 = VERY SLOW
+*	2 = QUITE SLOW
+*	3 = NORMAL SPEED
+*	4 = QUITE FAST
+*	5 = CRAZY FAST
+*	6 = OPERATIC/RAP/AS IF IT WERE POETRY
+5. Do this 5 or 6 times - video it.
+6. After each iteration make notes of any new funny ideas that came to you, any changes you might make.  Either note them on the routine or, if you're getting to the point where you're putting the routine down just add them in.
+7. I'm going to try this this weekend, I might post the results.
 
 ### First Joke of the year
 
