@@ -34,6 +34,7 @@
 
 **Dick-cember** - pretend to be a vegan, especially for Christmas dinner.
 
+---
 ### Notes on "Hothousing"
 
 OK, so I played the game with the speed of the routine yesterday and it kind of worked.
