@@ -5,10 +5,10 @@
 
 ## January 5th 2019
 
+
 ### Joke No. 2
-#### A Whole Year 
-#### of Month-Themed 
-#### Self-Improvement
+
+### A Year of Living Self-Helpfully
 
 **Planuary** - plan all the things that you're going to stop doing in the rest of the year
 
