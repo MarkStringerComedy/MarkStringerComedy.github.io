@@ -5,6 +5,35 @@
 
 ## January 5th 2019
 
+### Joke No. 2
+#### A Whole Year 
+#### of Month-Themed 
+#### Self-Improvement
+
+**Planuary** - plan all the things that you're going to stop doing in the rest of the year
+
+**Forbrewery** - got to the pub every night 
+
+**Fartz** - eat a *lot* of kebabs and curries
+
+**Straypril** - commit adultery
+
+**Stray May** - do it again!
+
+**Noon June** - don't get out of bed until lunch
+
+**July** - Yu lie next to the pool somewhere sunny probably drinking cocktails with a hangover
+
+**Or Gust** - a lot like Fartz
+
+**Acceptember** - say yes to everything
+
+**Cocktober** – Experiment sexually
+
+**NoNovember** - don't say “no” to anything
+
+**Dick-cember** - pretend to be a vegan, especially for Christmas dinner.
+
 ### Notes on "Hothousing"
 
 OK, so I played the game with the speed of the routine yesterday and it kind of worked.
@@ -39,11 +68,11 @@ So I've got an idea for something that I might try.
 6. After each iteration make notes of any new funny ideas that came to you, any changes you might make.  Either note them on the routine or, if you're getting to the point where you're putting the routine down just add them in.
 7. I'm going to try this this weekend, I might post the results.
 
-### First Joke of the year
+### Joke No. 1 of the year
 
 >> I think it's time ladies and gentlemen that we talk about the elephant in the room, well, if there isn't an elephant in the room, what did I just see in the gents?  Not only had it blocked the u-bend it had cracked the pot. And there was what looked like a trunk-shaped dent in the wall.  Although I suppose it's possible that that was the result of veganuary.
 
-### Gig Notes - Gig Number 1
+### Gig Notes - Gig No. 1
 
 There weren't many of us last night at the Princess Victoria in Shepherd's Bush.  Njambi McGrath runs a great evening, but it's *not* a bringer unless you want to do 10 minutes (I'd bought a bringer). 
 
