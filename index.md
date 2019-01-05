@@ -3,6 +3,19 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+## January 5th 2019
+
+### Notes on "Hothousing"
+
+OK, so I played the game with the speed of the routine yesterday and it kind of worked.
+
+Some notes.
+
+1. There are only really three speeds: slow as you can bear, fast as you can and normal (it might work to go slow and then try to go slower and then try to go even slower, and the same with faster).
+2. It teaches you the material and it makes you feel the bits that don't work
+3. I think I've got about 2 mins tops of good stuff in my current 5 mins so I need to write some more!
+4. I got a "weak joke" out of the activity - "50 years old and never been swiped."
+
 ## January 3rd 2019
 
 ### "Hothousing"
