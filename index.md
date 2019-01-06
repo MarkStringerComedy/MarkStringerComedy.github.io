@@ -5,7 +5,6 @@
 
 ## January 5th 2019
 
-
 ### Joke No. 2
 
 ### A Year of Living Self-Helpfully
@@ -16,19 +15,19 @@
 
 **Fartz** - eat a *lot* of kebabs and curries
 
-**Straypril** - commit adultery
+**Staypril** - stay in the house and watch box sets, order pizza
 
-**Stray May** - do it again!
+**Play away May** - commit adultery 
 
 **Noon June** - don't get out of bed until lunch
 
-**July** - Yu lie next to the pool somewhere sunny probably drinking cocktails with a hangover
+**July** - Ju lie next to the pool somewhere sunny probably drinking cocktails with a hangover
 
 **Or Gust** - a lot like Fartz
 
 **Acceptember** - say yes to everything
 
-**Cocktober** – Experiment sexually
+**Cocktober** – Behave like Piers Morgan
 
 **NoNovember** - don't say “no” to anything
 
