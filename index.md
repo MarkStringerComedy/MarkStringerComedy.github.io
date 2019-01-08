@@ -3,6 +3,45 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### January 8th 2019
+
+### Knob Gags
+
+Knob gags. Dick gags. Ball gags. I wrote down the "curler" joke from yesterday, even though it was tortuous because I think it's important even to write down a glimmer of a gag. But at the same time I'd really like to write some other jokes. 
+
+### Joke No. 4
+
+### You are what you eat
+
+They say that you are what you eat.  Does that mean that Boris Johnson eats massive cocks?
+
+## January 7th 2019
+
+### Bringer No. 1 - Cavendish Arms Comedy Competition, "the Max Turner"
+
+Interesting to go a comedy competition.  There was one stand-out act, who I'm sure I'll see again and catch his name next time - Nick someone.
+  
+One thing that *is* clear about that competition is that getting on first is really bad. The first three or four acts really struggled.
+
+I'm on next week and I can see that what you need for that competition is a really tight set.  Which is exactly what I don't have. 
+
+### Joke No. 3
+
+### Curlers
+
+I have this friend who's into polyamoury.  I rang her up last night on the off-chance she wanted to go out for a drink.
+
+She said "Oh I would do, but I just got the curlers in."
+
+I said "You mean you're doing your hair."
+
+She said "No that's what I call my boyfriends Jeff and Barry."
+
+I said "Why?"
+
+She said "Because they sweep me up and they've got huge stones."
+
+
 ## January 5th 2019
 
 ### Joke No. 2
