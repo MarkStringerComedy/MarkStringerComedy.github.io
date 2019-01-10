@@ -7,6 +7,12 @@
 
 ### Gig Notes - Gig No. 3
 
+<audio controls>
+  <source src="GigThreeDeptford.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="myAudio.mp4">link to the audio</a> instead.</p>
+</audio>
+
 A brand new comedy gig in Deptford. The compere asked me what kind of material I was going to do. Me "Erm, I'm going to talk about Brexit and oral sex."
 
 I was supposed to be second on in the second act (a very nice slot) but then some other comics didn't turn up and I ended up being on first! I'd only just though of the oral sex stuff that morning and I did it instead of the LME stuff which hasn't really gone that well. And, it went very well. I wouldn't necessarily say that I smashed it (OK I did say that on facebook!) but it went very well.
