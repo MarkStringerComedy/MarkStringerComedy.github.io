@@ -3,7 +3,40 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### January 9th 2019
+
+### Gig Notes - Gig No. 3
+
+A brand new comedy gig in Deptford. The compere asked me what kind of material I was going to do. Me "Erm, I'm going to talk about Brexit and oral sex."
+
+I was supposed to be second on in the second act (a very nice slot) but then some other comics didn't turn up and I ended up being on first! I'd only just though of the oral sex stuff that morning and I did it instead of the LME stuff which hasn't really gone that well. And, it went very well. I wouldn't necessarily say that I smashed it (OK I did say that on facebook!) but it went very well.
+
+### Joke No. 4
+
+### Oral sex
+
+Lots of things sound like a great idea but turn out to be a bad idea.  I read a book about oral sex. No this is real.  It's called "She comes first." And it was lots of good advice about oral sex. Cover the whole area.  Not just the top bit.  Maintain eye contact.  Which can be tricky. But yes.  Good.  Compliment  her on the smell and the taste.
+
+Now this just goes to show that in sex, as in comedy, timing is very important.  Because at this point, compliment a lady on the smell of her vagina is a good idea.  Do it to someone you've never met before on the Jubilee line? You're gonna get funny looks.  See? Timing. 
+
+But finally, when you're getting advance it suggests that you get right in there and put your big front teeth against the clitoris and hum. You're essentially turning yourself into a giant vibrator.  Sounds like a good idea right? But the question then arises.  What are you gonna hum? I always want to hum the damnbusters. You've got the mask on.  You've got things flapping in the wind behind you.
+
+I was not popular.  This gives a whole new meaning to the phrase "not going down well."
+
 ### January 8th 2019
+
+### Gig Notes - Gig No. 2 
+Great gig in Stoke Newington - 42 Comedy club on a Tuesday night downstairs at Fanny's bar.
+
+You know when you go to the theatre and you come back all breathless and enthusiastic.  That's how I feel after this gig.  I really think the hothousing worked.
+
+I did a *bunch* of material I've never done before about Brexit and Sinn Fein! And it got laughs in front of a substantially Irish crowd.
+
+I really didn't think that the place looked like much when I went in there but I enjoyed being in the audience and *boy* did I enjoy being on stage.
+
+Again.  Again.
+
+Great gig in Stoke Newington - 42 Comedy club on a Tuesday night downstairs at Fanny's bar.
 
 ### Knob Gags
 
