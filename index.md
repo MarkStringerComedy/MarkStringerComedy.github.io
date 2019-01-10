@@ -12,22 +12,24 @@
   <p>Your browser doesn't support HTML5 audio. Here is
      a <a href="myAudio.mp4">link to the audio</a> instead.</p>
 </audio>
-
+<br>
 A brand new comedy gig in Deptford. The compere asked me what kind of material I was going to do. Me "Erm, I'm going to talk about Brexit and oral sex."
 
 I was supposed to be second on in the second act (a very nice slot) but then some other comics didn't turn up and I ended up being on first! I'd only just though of the oral sex stuff that morning and I did it instead of the LME stuff which hasn't really gone that well. And, it went very well. I wouldn't necessarily say that I smashed it (OK I did say that on facebook!) but it went very well.
+
+I think the hot housing worked very well. I'm going to try to do some more tomorrow.
 
 ### Joke No. 4
 
 ### Oral sex
 
-Lots of things sound like a great idea but turn out to be a bad idea.  I read a book about oral sex. No this is real.  It's called "She comes first." And it was lots of good advice about oral sex. Cover the whole area.  Not just the top bit.  Maintain eye contact.  Which can be tricky. But yes.  Good.  Compliment  her on the smell and the taste.
+>>Lots of things sound like a great idea but turn out to be a bad idea.  I read a book about oral sex. No this is real.  It's called "She comes first." And it was lots of good advice about oral sex. Cover the whole area.  Not just the top bit.  Maintain eye contact.  Which can be tricky. But yes.  Good.  Compliment  her on the smell and the taste.
 
-Now this just goes to show that in sex, as in comedy, timing is very important.  Because at this point, compliment a lady on the smell of her vagina is a good idea.  Do it to someone you've never met before on the Jubilee line? You're gonna get funny looks.  See? Timing. 
+>> Now this just goes to show that in sex, as in comedy, timing is very important.  Because at this point, compliment a lady on the smell of her vagina is a good idea.  Do it to someone you've never met before on the Jubilee line? You're gonna get funny looks.  See? Timing. 
 
-But finally, when you're getting advance it suggests that you get right in there and put your big front teeth against the clitoris and hum. You're essentially turning yourself into a giant vibrator.  Sounds like a good idea right? But the question then arises.  What are you gonna hum? I always want to hum the damnbusters. You've got the mask on.  You've got things flapping in the wind behind you.
+>> But finally, when you're getting advance it suggests that you get right in there and put your big front teeth against the clitoris and hum. You're essentially turning yourself into a giant vibrator.  Sounds like a good idea right? But the question then arises.  What are you gonna hum? I always want to hum the damnbusters. You've got the mask on.  You've got things flapping in the wind behind you.
 
-I was not popular.  This gives a whole new meaning to the phrase "not going down well."
+>>I was not popular.  This gives a whole new meaning to the phrase "not going down well."
 
 ### January 8th 2019
 
