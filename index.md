@@ -9,11 +9,15 @@
 
 This is normally a very friendly night but I found it a bit weird. Maybe what made it so weird was that one of the first acts on was the daughter of a famous politician.  She wasn't funny. But she didn't have to be to keep people interested because she was telling stories about famous people. What I found particularly galling was that she didn't obey the rules of the "Bringer" - she didn't stay until the end. And she also did about a minute and a half longer than she was supposed to.
 
-Ah well, I suppose if you're dad's implicated in murdering a million people you're probably not going to "sweat" the small stuff of the etiquette of a bringer night.
+Ah well, I suppose if your dad's implicated in murdering a million people you're probably not going to "sweat" the small stuff of the etiquette of a bringer night.
 
 The other thing that slightly bothered me was that there were two female comedians who did stuff that, I thought, was really hostile to men. One of them was specifically calling out men my age. Part of what bothers me about it is that I'm wondering if when I do jokes about sex, I'm coming across as hostile to women. I've theorised that it might be a good idea to "punch up" as a female comedian.  So it's interesting that when I watched someone do that a couple of times in one night, I didn't like it up me - as Clive Dunn would say. 
 
-One of the jokes that I did like was "I went to therapy, then I did stand-up comedy, which is definitely the right order." A lot of people are there to talk about their sexuality.  I mean. *I'm* there when I'm on stage to talk about my sexuality.  But I suppose what I'm trying to do is to have put enough work into the writing and the delivery that it gets laughs.
+One of the jokes that I did like was "I went to therapy, then I did stand-up comedy, which is definitely the right order." A lot of people are there to talk about their sexuality in ways which are quite near therapy.  
+
+I mean. *I'm* there when I'm on stage to talk about my sexuality.  But I suppose what I'm trying to do is to have put enough work into the writing and the delivery that it gets laughs. Could you (if you were a woman) do a routine about hating men that was riotously funny?
+
+I read autobiography of Joan Rivers and she says something about it being OK for there to hate in the comedy.  But there has to be more comedy than hate.
 
 
 ### January 9th 2019
@@ -49,7 +53,7 @@ I think the hot housing worked very well. I'm going to try to do some more tomor
 ### Gig Notes - Gig No. 2 
 Great gig in Stoke Newington - 42 Comedy club on a Tuesday night downstairs at Fanny's bar.
 
-You know when you go to the theatre and you come back all breathless and enthusiastic.  That's how I feel after this gig.  I really think the hothousing worked.
+You know when you go to the theatre and you come back all breathless and enthusiastic.  That's how I feel after this gig.  I really think the hot-housing worked.
 
 I did a *bunch* of material I've never done before about Brexit and Sinn Fein! And it got laughs in front of a substantially Irish crowd.
 
@@ -127,7 +131,7 @@ She said "Because they sweep me up and they've got huge stones."
 **Dick-cember** - pretend to be a vegan, especially for Christmas dinner.
 
 ---
-### Notes on "Hothousing"
+### Notes on "Hot-housing"
 
 OK, so I played the game with the speed of the routine yesterday and it kind of worked.
 
@@ -140,7 +144,7 @@ Some notes.
 
 ## January 3rd 2019
 
-### "Hothousing"
+### "Hot-housing"
 
 Just realised that I've got a competition in 12 days time.  And what I need for that is a "tight" 5 minutes.  That's not what I have have the the moment is a "loose" 9 or 10 minutes. How do I make it tighter. Well, I can do *lots* of 5 minute gigs but every one that I do, I have to go to.  And that's typically a whole evening that I'm not at home.  Also, every gig that I do where I'm saying the *same* thing over and over is a gig where I'm not trying new material.  It's also a gig where I'm not trying new interactions with audience. 
 
