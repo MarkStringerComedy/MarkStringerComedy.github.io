@@ -3,6 +3,19 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Saturday 12th January 2019
+
+### Bringer No. 2 - Cuddles for Troubles 
+
+This is normally a very friendly night but I found it a bit weird. Maybe what made it so weird was that one of the first acts on was the daughter of a famous politician.  She wasn't funny. But she didn't have to be to keep people interested because she was telling stories about famous people. What I found particularly galling was that she didn't obey the rules of the "Bringer" - she didn't stay until the end. And she also did about a minute and a half longer than she was supposed to.
+
+Ah well, I suppose if you're dad's implicated in murdering a million people you're probably not going to "sweat" the small stuff of the etiquette of a bringer night.
+
+The other thing that slightly bothered me was that there were two female comedians who did stuff that, I thought, was really hostile to men. One of them was specifically calling out men my age. Part of what bothers me about it is that I'm wondering if when I do jokes about sex, I'm coming across as hostile to women. I've theorised that it might be a good idea to "punch up" as a female comedian.  So it's interesting that when I watched someone do that a couple of times in one night, I didn't like it up me - as Clive Dunn would say. 
+
+One of the jokes that I did like was "I went to therapy, then I did stand-up comedy, which is definitely the right order." A lot of people are there to talk about their sexuality.  I mean. *I'm* there when I'm on stage to talk about my sexuality.  But I suppose what I'm trying to do is to have put enough work into the writing and the delivery that it gets laughs.
+
+
 ### January 9th 2019
 
 ### Gig Notes - Gig No. 3
