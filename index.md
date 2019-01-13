@@ -17,7 +17,7 @@ One of the jokes that I did like was "I went to therapy, then I did stand-up com
 
 I mean. *I'm* there when I'm on stage to talk about my sexuality.  But I suppose what I'm trying to do is to have put enough work into the writing and the delivery that it gets laughs. Could you (if you were a woman) do a routine about hating men that was riotously funny?
 
-I read autobiography of Joan Rivers and she says something about it being OK for there to hate in the comedy.  But there has to be more comedy than hate.
+I read autobiography of Joan Rivers and she says something about it being OK for there to be hate in the comedy.  But there has to be more comedy than hate.
 
 
 ### January 9th 2019
