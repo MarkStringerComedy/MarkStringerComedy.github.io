@@ -8,7 +8,7 @@
 ### Gig No. 4 - Cavendish Arms Competition
 It went nowhere near as well as the Strange Brew gig last week. I noticed that competition audiences at the Cav are less willing to laugh than normal Cav audiences.
 
-And I didn't get through <p>&#x1f600</p>.
+And I didn't get through <p>&#x1f641</p>.
 
 <audio controls>
   <source src="GigFourCavendish.mp3" type="audio/mp3">
