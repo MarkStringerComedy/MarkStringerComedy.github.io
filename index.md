@@ -3,6 +3,19 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Tuesday 16th January 2019
+
+### Gig No. 4 - Cavendish Arms Competition
+It went nowhere near as well as the Strange Brew gig last week. I noticed that competition audiences at the Cav are less willing to laugh than normal Cav audiences.
+
+And I didn't get through <p>&#x1f600</p>.
+
+<audio controls>
+  <source src="GigFourCavendish.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFourCavendish.mp3">link to the audio</a> instead.</p>
+</audio>
+
 ### Monday 14th January 2019
 
 ### Stunts
@@ -39,7 +52,7 @@ I read autobiography of Joan Rivers and she says something about it being OK for
 <audio controls>
   <source src="GigThreeDeptford.mp3" type="audio/mp3">
   <p>Your browser doesn't support HTML5 audio. Here is
-     a <a href="myAudio.mp4">link to the audio</a> instead.</p>
+     a <a href="GigThreeDeptford.mp3">link to the audio</a> instead.</p>
 </audio>
 <br>
 A brand new comedy gig in Deptford. The compere asked me what kind of material I was going to do. Me "Erm, I'm going to talk about Brexit and oral sex."
