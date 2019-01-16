@@ -8,7 +8,11 @@
 ### Gig No. 4 - Cavendish Arms Competition
 It went nowhere near as well as the Strange Brew gig last week. I noticed that competition audiences at the Cav are less willing to laugh than normal Cav audiences.
 
-And I didn't get through <p>&#x1f641</p>.
+And I didn't get through. Which felt miserable when it happened. But that's the ying to the yang of how great it feels when they laugh and you totally smash it.
+
+There was also some reference to my age. The compere compared (I suppose that's his job!) me to the old guy from "Up!".  Cheeky bastard. And then my bringer pointed out that there was a strong contrast between me and the other comedians in terms of age. OK.  I'm a lot older than a lot of the other comedians on the circuit, but I still think I have something to give. Part of me wonders if I should vary what I do to somehow fit my age better. Part of me (the part that wins) thinks "fuck it, this is MY time." I'll do what the fuck I like.
+
+I was going to ask the audience what sort of jokes they think I should tell, but I didn't because I thought I should do a *tight* five minutes. But what would have been the harm?  
 
 <audio controls>
   <source src="GigFourCavendish.mp3" type="audio/mp3">
