@@ -8,11 +8,15 @@
 ### Gig No. 4 - Cavendish Arms Competition
 It went nowhere near as well as the Strange Brew gig last week. I noticed that competition audiences at the Cav are less willing to laugh than normal Cav audiences.
 
-And I didn't get through. Which felt miserable when it happened. But that's the ying to the yang of how great it feels when they laugh and you totally smash it.
+And I didn't get through to the next round. Which felt miserable when it happened. But that's the ying to the yang of how great it feels when they laugh and you totally smash it.
 
 There was also some reference to my age. The compere compared (I suppose that's his job!) me to the old guy from "Up!".  Cheeky bastard. And then my bringer pointed out that there was a strong contrast between me and the other comedians in terms of age. OK.  I'm a lot older than a lot of the other comedians on the circuit, but I still think I have something to give. Part of me wonders if I should vary what I do to somehow fit my age better. Part of me (the part that wins) thinks "fuck it, this is MY time." I'll do what the fuck I like.
 
-I was going to ask the audience what sort of jokes they think I should tell, but I didn't because I thought I should do a *tight* five minutes. But what would have been the harm?  
+I was going to ask the audience what sort of jokes they think I should tell, but I didn't because I thought I should do a *tight* five minutes. But what would have been the harm?
+
+But then, you know, listening back to the recording.  I do sound kind of tired. And I'm sure that that doesn't work.  I know that there are some "low energy" comedians. But I don't think my stuff generally works that way.  The way that I see myself is as friendly, eccentric and OK, filthy. 
+
+And this is good, because it's a note that I can give to myself (as well as the note to always make sure that I record myself and listen back to the recordings). When it's a long old night and you're not on until later, you need to make sure that you attack with energy.
 
 <audio controls>
   <source src="GigFourCavendish.mp3" type="audio/mp3">
@@ -20,6 +24,7 @@ I was going to ask the audience what sort of jokes they think I should tell, but
      a <a href="GigFourCavendish.mp3">link to the audio</a> instead.</p>
 </audio>
 <br />
+
 
 ### Monday 14th January 2019
 
@@ -153,7 +158,6 @@ She said "Because they sweep me up and they've got huge stones."
 **Or Gust** - a lot like Fartz
 
 **Acceptember** - say yes to everything
-
 **Cocktober** – Behave like Piers Morgan
 
 **NoNovember** - don't say “no” to anything
