@@ -3,7 +3,43 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
-### Tuesday 16th January 2019
+### Friday 18th January 2019
+
+### Joke No. 7 - Wrong routine
+
+Hello.  How are you doing? Look at this! You're here! I'm here! Let's push the tea and bourbons to one side and get fucking.  Ah sorry.  Wrong meeting.
+
+### Joke No. 6 - World Peace
+
+I would really like world peace.  Actually I don't think world peace isn't enough.  You really need world peace and quiet.  Because if there's world peace but somebody's watching:
+
+* youtube videos
+* on their phone
+* with the sound on
+
+Sooner or later there's gonna be murders.
+
+### Wednesday 16th January 2019
+
+### Bringer No. 3 - The Cavendish Arms
+
+So I was a bringer at the competition at the Cav the night after I was a competitor.  It was interesting to note that *I* thought that the audience was much better than the previous night.  The comic that I was bringering didn't think they were that great. 
+
+Actually I thought pretty much everyone was hilarious. And I laughed a *lot.*
+
+Some of the people were hilarious were only on their third or fourth gig, which is amazing. And just goes to show that Logan Murray's claim that *everyone* can be funny in the right setting is pretty much true.
+
+A couple of gigs that I did have in the calendar have disappeared.  So I don't have another gig now until I'm over 50!
+
+And I'm seriously thinking about trying to make my next gig entirely new material.  Not reading off a clipboard. But properly hot-housed. I've got 12 days. I think I can do it.
+
+### Joke No. 5 - Fucking How Much?
+
+I love living in London and most of the time I just put up with the prices.  But every now and then I have a Yorkshire flashback. It's like the world goes into slow motion and it "Foooookinnnnngin Hooowwwwwww MUCH?"
+
+And at that point, if I did have a machine gun I would just gun down all the staff.
+
+### Tuesday 15th January 2019
 
 ### Gig No. 4 - Cavendish Arms Competition
 It went nowhere near as well as the Strange Brew gig last week. I noticed that competition audiences at the Cav are less willing to laugh than normal Cav audiences.
