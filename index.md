@@ -5,6 +5,10 @@
 
 ### Friday 18th January 2019
 
+### Joke No. 8 - Toto
+
+Fucking Toto - "I guess it rains down in Africa." Good fucking guess.  What's it gonna do? Rain up?
+
 ### Joke No. 7 - Wrong routine
 
 Hello.  How are you doing? Look at this! You're here! I'm here! Let's push the tea and bourbons to one side and get fucking.  Ah sorry.  Wrong meeting.
