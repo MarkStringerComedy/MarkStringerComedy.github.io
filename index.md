@@ -3,11 +3,35 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Tuesday 22nd January 2019
+
+I AM FIFTY TODAY! 
+
+### Joke No. 10 - Unaided Flight
+
+Unaided flight is a thing that birds can do that we humans can't do. Like hanging upsidedown from a bird feeder to get at the peanuts - I've tried.
+
+
+### Sunday 20th January 2019
+
+### Bringer No 4. Rising Stars 
+[Rising Stars Comedy Club](https://www.facebook.com/RisingStarComedy/)
+
+The winner of the night - Lucy Gape was very funny and lifted a night that had been a bit lacklustre up to that point.  It's a good room at the King and Queen on Foley street in Fitzrovia. It wasn't quite full, but I can imagine if it were it would be awesome. 
+
+### Joke No 9. Finer points of bringer gig etiquette
+
+I was at an open mic bringer gig a couple of weeks ago and Alastair Campbell's daughter was doing a set. She started out by boasting that she'd bullied someone at school.  Which I thought was a brave move in front of a bunch of comedians. Then her bringer left - halfway through her set and she did 8 minutes instead of eight and then fucked off after her set.  Which I thought was totally out of order, but I suppose if your dad was instrumental in the illegal death of millions of people you're not too worried about the finer points of bringer gig etiquette.
+
+### Saturday 19th January 2019
+
+Ha! I just checked the lyrics of "Africa" by Toto.  And it's not "I guess it rains down in Africa", it's "I bless the rains down in Africa." I don't know if that means I should just not do the bit, or it makes the bit better.
+
 ### Friday 18th January 2019
 
-### Joke No. 8 - Toto
+### Joke No. 8 - Fucking Toto
 
-Fucking Toto - "I guess it rains down in Africa." Good fucking guess.  What's it gonna do? Rain up?
+Fucking Toto - "I guess it rains down in Africa." Good fucking guess.  What's it gonna do? Rain up? It's kind of in the definition of rain that it rains down.  That's why it's called precipitation.  If it's raining up.  Either that's plain old evapouration, or maybe it's the end times.
 
 ### Joke No. 7 - Wrong routine
 
