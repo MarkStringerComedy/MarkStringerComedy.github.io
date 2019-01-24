@@ -3,13 +3,35 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 12 - The Beach Bit
+
+OK, I'm going to try a bit of guided meditation here for a minute. Just imagine that you're on a beach. It's a beautiful sunny day and the sun is beating down. You can hear the seagulls and the sound of the waves breaking on the shore.  You can feel the sun on your face and the warm water and the sand between your toes.
+
+Now the question is, which is the most vivid? Is it the sight of the sand and the sea? Is it the sound of the waves and the seagulls? Or is it the feel of the sand between your toes and the sun on your face.
+
+If it's blue of the sky and the sunlight, that means you're basically a visual person. If it's the sound of the waves you're an aural person.  Sound. Sound you dirty fuckers.  If you're asking how much this holiday cost and if breakfast is included and why they don't serve baked beans you're my fucking uncle Trevor. No seriously, if it's the feel of the sand between your toes that's most vivid, you're probably a serial killer.
+
+### Joke No. 11 - Prostate exam
+
+I went to get my prostate examined by the doctor.  Because you get to a certain age that's what happens.  The doctor is a tiny young Indian lady and she asks me if I'd like a chaperone.  And I was thinking, yes, that's exactly what this situation needs.  An audience.  
+
+So she did the exam and she said that my prostate was nice and smooth - what's the right response to that? Thank you? Is that in any of the etiquette books?
+
+### Wednesday 23rd January 2019
+
+### Bringer #5 - Strange Brew Comedy, Deptford
+
+I was a bringer for this and the host posted some good pictures of me laughing my ass off. There were a couple of comedians that I liked and what I liked about both of them was their energy.  Note to self.  Always get the names of the comedians that you like. I found the headline act:
+* Hilarious
+* Reassuring because so much of what he was doing had clearly been *written* - they were actual jokes.
+
 ### Tuesday 22nd January 2019
 
 I AM FIFTY TODAY! 
 
 ### Joke No. 10 - Unaided Flight
 
-Unaided flight is a thing that birds can do that we humans can't do. Like hanging upsidedown from a bird feeder to get at the peanuts - I've tried.
+Unaided flight is a thing that birds can do that we humans can't do. Like hanging upsidedown from a bird feeder to get at the peanuts, birds can do it.  Humans can't.  I know - I've tried.
 
 
 ### Sunday 20th January 2019
@@ -35,7 +57,7 @@ Fucking Toto - "I guess it rains down in Africa." Good fucking guess.  What's it
 
 ### Joke No. 7 - Wrong routine
 
-Hello.  How are you doing? Look at this! You're here! I'm here! Let's push the tea and bourbons to one side and get fucking.  Ah sorry.  Wrong meeting.
+Hello.  How are you doing? Look at this! You're here! I'm here! Let's push the tea and bourbons to one side and get fucking.  Ah sorry.  Wrong opening speech.
 
 ### Joke No. 6 - World Peace
 
