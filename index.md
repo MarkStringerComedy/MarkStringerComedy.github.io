@@ -3,9 +3,12 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Tuesday January 29th
 
 ### Gig No. 5 - Hoop and Toy
-I thought this gig went pretty well.  It's very frustrating that some of this stuff still went best the first time that I did it.  But hey.  
+I thought this gig went pretty well.  It's very frustrating that some of this stuff still went best the first time that I did it.  But hey. I'm worried that I'm not writing enough.  
+
+Time to get up first thing in the morning and write some more material.
 
 <audio controls>
   <source src="GigFiveHoopAndToy.mp3" type="audio/mp3">
