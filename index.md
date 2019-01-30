@@ -3,6 +3,19 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+
+### Gig No. 5 - Hoop and Toy
+I thought this gig went pretty well.  It's very frustrating that some of this stuff still went best the first time that I did it.  But hey.  
+
+<audio controls>
+  <source src="GigFiveHoopAndToy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFiveHoopAndToy.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
+
+
 ### Joke No. 12 - The Beach Bit
 
 OK, I'm going to try a bit of guided meditation here for a minute. Just imagine that you're on a beach. It's a beautiful sunny day and the sun is beating down. You can hear the seagulls and the sound of the waves breaking on the shore.  You can feel the sun on your face and the warm water and the sand between your toes.
