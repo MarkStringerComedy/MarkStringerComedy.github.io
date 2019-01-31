@@ -3,6 +3,31 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Wednesday January 30th 
+
+### Gig No. 6 - Heavenly Comedy, Princess Victoria
+
+A good gig - as always at Heavenly Comedy.  I'd arranged a bringer so that I could do 10 minutes and then only did about 8 mins 30 secs which was probably a mistake but it was good to give some material a first airing - the fucking Toto stuff. 
+GigSixHeavenlyComedy.mp3
+
+<audio controls>
+  <source src="GigSixHeavenlyComedy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigSixHeavenlyComedy.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
+
+I'll post the audio here later.
+
+### Joke No. 13 - Cluedo
+
+I once talked to this guy who was doing research on video games causing violence.  And I said oh, so are you comparing those people to people who play other games - like Rugby? Hang on a minute.  Never mind Rugby.  What about board games. Trivial pursuit? Monoply. Do you know a game of monoply that hasn't ended in a rage quit?
+
+People must get actually killed while playing cluedo so often the forensics guys get bored of seeing it.
+
+"Yes, he's been superficially beaten about the head with the box. And then his head has been slammed repeatedly into the board - that's why the little candlestick and the revolver are embedded in his forhead. And as a simultaneous demonstration of overkill and futility he's been stabbed 43 times in the neck with a tiny, tiny, revolver."
+
 ### Tuesday January 29th
 
 ### Gig No. 5 - Hoop and Toy
