@@ -3,6 +3,26 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 15 - Fucking Tutu
+
+No I actually like being married. And I love my wife. I don't know did I break some basic comedy rule.  But actually getting married was complicated a bit by the injuries from my stag night.
+
+Hey, it wasn't their fault really I suppose.  But my mates thought it would be funny to dress me up in a skirt and tights. And I'm not that used to wearing that kind of gear.  So we were waiting to go up in the life to Sushi Samba in Heron Tower - I know, classy. And my skirt got kind of stuck in the lift and it pulled me off the ground and then it was starting to cut through my skin and if one of my friends hadn't had the initiative to whip out his swiss army knife and cut me out of it, I might have been killed.  But unfortunately by that time, I had been pulled by the skirt to the top of the lift door, so when he did cut me free, I kind of plummeted down and smack my head on the floor.  So that was pretty much an end to the stag night and I was in a cast for my wedding.
+
+Fucking Tutu.
+
+### Joke No. 14 - Fucking Toto Number 2
+
+So I took a break from comedy for a while and I was living and working in Kansas.  In a part of America they call "Tornado alley."
+
+And one day while I was sitting in my studio apartment.  The tornado alarm went off, and I could actually see the thing like a giant plughole in the sky.  So I was running towards the underground car park that was the tornado shelter.  But just as I got to safety this cute little dog ran the other way - back into the apartment building.  And so I tried to save the dog. And the whole building got swept up into the sky.  And when we landed.  I don't know.  It was weird.  There was this sociopath dressed in tinfoil.  And this really fat cat with anxiety issues and, I don't mean to be rude but this really stupid tramp. And we had to follow this yellow road to find this dude in a green town who would help and he was just a giant fraud.  So the only way I could get home was to kill this new age priestess for her slippers. Fucking Toto. 
+
+### Binger No. 6
+
+This was a gig in an outhouse essentially at the Boogaloo in Highgate.  Which in this weather wasn't great. And the crowd was weird. One guy got up and did his act and he was followed by this woman who claimed that he'd stolen a joke from her. He said he hadn't.  I suppose it's impossible to know who's telling the truth. Although she did also say as part of her act "If you're not having suicidal thoughts why are you even doing comedy?" Which is probably a bit she shouldn't mention if the beef ever come to trial.
+
+There were some actual punters in the crowd as well.  And some of those (well one of those) was not a nice lady. I was at this gig being bring for a disable person, and when we came back from the toilet in the interval she was sitting in the place we'd been sitting.  When I tried to put my friend back in *his* place she started being horrible to him saying "You have to move up so my husband can sit there." I'm not certain, but I think she was the woman taking exception to an anti Brexit joke early in the set.
+
 ### Wednesday January 30th 
 
 ### Gig No. 6 - Heavenly Comedy, Princess Victoria
