@@ -3,6 +3,20 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 7 - Ken Uncut, the Hoop and Toy South Kensington
+
+Gigging in the afternoon? Weird.  I was focused on setting up a timer and recording my set and as a result managed to do neither. So no recording to post here.
+
+I thought a lot of the other comedians were *very* good and I did find myself spilling out into the South Kensington freezing afternoon wondering why I am doing this (the questions pretty much everybody else asks me).
+
+But I did do the whole of the Fucking ToTo, ToTo, TuTu. Bit which I've no idea where it came from, but there we are. So I came away with a bunch of resolutions.
+
+1) Hothouse your routines when you have new material in them (I don't quite know how I'm going to do that before tomorrow night, but, anyway, that's the resolution).
+2) Keep writing - doing the hadron joke collider etc really works, even when it doesn't work.
+3) When you think somebody is really funny (like yesterday, there was a guy with long hair and glasses who was really funny) get there name and then you can write about how funny they are.
+
+OK that's enough resolutions. 
+
 ### Joke No. 15 - Fucking Tutu
 
 No I actually like being married. And I love my wife. I don't know did I break some basic comedy rule.  But actually getting married was complicated a bit by the injuries from my stag night.
