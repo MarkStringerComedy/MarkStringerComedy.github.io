@@ -3,6 +3,25 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 19 - Monkey driving Brexit
+So there's been a thing on a lot of social media pages about a bus driver losing his job because he let a monkey drive his bus for a few minutes.
+
+Which is weird because the British people have been letting Monkeys drive Brexit for over two years - no punishment so far - I think it might be coming.
+
+### Joke No. 18 - Favourite Pronouns
+
+So some people have started putting their preferred pronouns in their twitter profiles.  And I'm totally fine with that.  Refer to yourself however you want, make it easier for people to address you as you want to be addressed.  Totally fine.  But I was thinking that I don't really mind what pronouns you use for me "he him his."  "They, them, their", "It it its."  Who am I kidding I'm a comedian my preferred pronouns are I, I, I and ME, ME, ME.
+
+But I was thinking I definitely have a preferred noun.  Pudding. 
+
+### Joke No. 17 - (audience bit) 
+
+Good evening madam - do you identify as a woman? Can I ask you is there any possibility of you initiating a sexual encounter with me? What no? That's fine.  You're in control of this thing. I totally respect that.
+
+### Joke No. 16 - Hull is Other People
+
+What if you were in Hell - who would be there with you? In my case, I was imagining that it would be a very beautiful woman who won't sleep with me.  My mum.  Somebody who's a lot cleverer than me and a total racist idiot.  And if life really is a sick joke, what about hell being living with these people in Hull?  What kind of joke is worse than a pun?
+
 ### Gig No. 7 - Ken Uncut, the Hoop and Toy South Kensington
 
 Gigging in the afternoon? Weird.  I was focused on setting up a timer and recording my set and as a result managed to do neither. So no recording to post here.
@@ -31,7 +50,7 @@ So I took a break from comedy for a while and I was living and working in Kansas
 
 And one day while I was sitting in my studio apartment.  The tornado alarm went off, and I could actually see the thing like a giant plughole in the sky.  So I was running towards the underground car park that was the tornado shelter.  But just as I got to safety this cute little dog ran the other way - back into the apartment building.  And so I tried to save the dog. And the whole building got swept up into the sky.  And when we landed.  I don't know.  It was weird.  There was this sociopath dressed in tinfoil.  And this really fat cat with anxiety issues and, I don't mean to be rude but this really stupid tramp. And we had to follow this yellow road to find this dude in a green town who would help and he was just a giant fraud.  So the only way I could get home was to kill this new age priestess for her slippers. Fucking Toto. 
 
-### Binger No. 6
+### Bringer No. 6
 
 This was a gig in an outhouse essentially at the Boogaloo in Highgate.  Which in this weather wasn't great. And the crowd was weird. One guy got up and did his act and he was followed by this woman who claimed that he'd stolen a joke from her. He said he hadn't.  I suppose it's impossible to know who's telling the truth. Although she did also say as part of her act "If you're not having suicidal thoughts why are you even doing comedy?" Which is probably a bit she shouldn't mention if the beef ever come to trial.
 
