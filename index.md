@@ -3,6 +3,18 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 8 - Right Funny Comedy Clapham
+
+Better - there's a ton more fun "down there" on what can be hummed. It's a good gig because it always gets genuine punters as well as other comedians and their bringers.
+
+<audio controls>
+  <source src="GigEightRightFunnyComedy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigEightRightFunnyComedy.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
+
 ### Joke No. 19 - Monkey driving Brexit
 So there's been a thing on a lot of social media pages about a bus driver losing his job because he let a monkey drive his bus for a few minutes.
 
