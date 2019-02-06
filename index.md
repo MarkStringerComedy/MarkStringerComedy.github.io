@@ -3,6 +3,22 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 9 - Comedy 42 Stoke Newington
+
+I think last night was one of the best. With some people coming up to me at the end and saying that they liked my set, in a room that had a *lot* of good comedians. 
+
+The chap who runs Comedy 42 is called Vittorio and he runs it very well.  I like the night at lot. It's in a cocktail bar under a kebab shop and they will bring the kebabs to your table as you watch the comedy! What's not to like about that!
+
+One thing that's interesting now - and I think this is something that I need to get better at - is polishing the bits that work. There's a bit in the bit about oral sex that I think I've only managed to do once and I haven't managed to do right yet.  It would be great to get that right. And I think that probably needs some hot housing.  If I'm not going out doing gigs for a while, then I'll get a chance to do that I suppose.
+
+At the same time I'm exasperated that I can't get the Brexit stuff to fly, and I'm wondering if it needs to be a combination of hothousing (that's my fancy word for practice) and actually writing out the routines and thinking of different bits that I can add.
+
+I wrote this little computer program called "ekeez" - after "Cadaver Equise" which is a surrealist game. I would really like my comedy to be more surreal but the stuff that I've tried in this area (the monkey's driving the bus stuff that I tried last night) hasn't worked. Yet.  I'm going to say yet. See? Positive thinking. All the little program does is read the last line from a file and then print it out, and then wait for you to type in another line, which it adds to the file. This is basically playing a game on my own that Logan Murray taught us how to play in groups. 
+
+When I've got a bunch of these "cadavers, equise" I'll think about reading them out - maybe just reading them out verbatim. Another thing that I learned from Logan is that if you do that kind of thing and you give the nonsense that you're reading full weight, you will get laughs.
+
+I know you don't care about any of these technical details, but I do think I'm going to also play with something called "Infinite ekeez", because the one that I have at the moment kind of relies on my not remembering what the thing before the last thing was. But don't worry.  I have a plan.
+
 ### Gig No. 8 - Right Funny Comedy Clapham
 
 Better - there's a ton more fun "down there" on what can be hummed. It's a good gig because it always gets genuine punters as well as other comedians and their bringers.
