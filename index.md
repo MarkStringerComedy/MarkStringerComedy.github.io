@@ -5,6 +5,14 @@
 
 ### Gig No. 9 - Comedy 42 Stoke Newington
 
+<audio controls>
+  <source src="GigNineComedyFortyTwo.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigNineComedyFortyTwo.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
+
 I think last night was one of the best. With some people coming up to me at the end and saying that they liked my set, in a room that had a *lot* of good comedians. 
 
 The chap who runs Comedy 42 is called Vittorio and he runs it very well.  I like the night at lot. It's in a cocktail bar under a kebab shop and they will bring the kebabs to your table as you watch the comedy! What's not to like about that!
