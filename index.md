@@ -5,6 +5,14 @@
 
 
 ### Gig No. 10 - Happy Laugh Craft - Hoop and Toy, South Kensington
+
+<audio controls>
+  <source src="GigTenHoopAndToy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTenHoopAndToy.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
 So I took out all the bits that I thought weren't working, but didn't seem to be able to connect. So I'm comforting myself, listening back to this that at least I'm clear. I can be heard. I'm not talking too fast, I'm not humming and ahing. They're listening to what I have to say.
 
 What is occurring to me now is that I'm wondering what they want. 
@@ -25,14 +33,7 @@ Are we even gonna make it to Benidorm?
 
 ### Joke No. 21 - Ailments
 
-I thought I'd just talk about my ailments for a bit - because I know that that's really sexy. Especially genit-urinary ailments - that's the hot stuff isn't it?
-
-<audio controls>
-  <source src="GigTenHoopAndToy.mp3" type="audio/mp3">
-  <p>Your browser doesn't support HTML5 audio. Here is
-     a <a href="GigTenHoopAndToy.mp3">link to the audio</a> instead.</p>
-</audio>
-<br />
+I thought I'd just talk about my ailments for a bit - because I know that that's really sexy. Especially genito-urinary ailments - that's the hot stuff isn't it?
 
 ### Joke No. 20 - More Elephant in the room
 
