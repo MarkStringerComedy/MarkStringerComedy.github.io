@@ -3,6 +3,46 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+
+### Gig No. 10 - Happy Laugh Craft - Hoop and Toy, South Kensington
+So I took out all the bits that I thought weren't working, but didn't seem to be able to connect. So I'm comforting myself, listening back to this that at least I'm clear. I can be heard. I'm not talking too fast, I'm not humming and ahing. They're listening to what I have to say.
+
+What is occurring to me now is that I'm wondering what they want. 
+
+The best joke of the night was an ISA/Isis pun.  And again - I didn't get the name.
+
+### Joke No. 23 - Plasticity
+
+Men's sexuality is fixed pretty early in life. Women's sexuality is more fluid.  This is called erotic plasticity.  It means that after certain age woman prefer a vibrator.
+
+No, no.  It means that even though women might have been straight all their lives they still might decide might find later in life that they actually are more attracted to women. 
+
+### Joke No. 22 - Wittgenstein
+
+The philosopher Ludwig Wittgenstein said that we are all asleep, but sometimes we are awake enough to know that we are dreaming. That's not an announcement you want to hear from the cockpit is it?
+
+Are we even gonna make it to Benidorm?
+
+### Joke No. 21 - Ailments
+
+I thought I'd just talk about my ailments for a bit - because I know that that's really sexy. Especially genit-urinary ailments - that's the hot stuff isn't it?
+
+<audio controls>
+  <source src="GigTenHoopAndToy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTenHoopAndToy.mp3">link to the audio</a> instead.</p>
+</audio>
+<br />
+
+### Joke No. 20 - More Elephant in the room
+
+You see the Elephant in the room is an interesting idea because it's obviously insane.  There is no Elephant in the room. If there were an elephant in this room, that would be a complete disaster, it would be mayhem.  I was at gig just recently when somebody brought a pitbull to an open mic gig.  That was bad enough.
+
+Actually having an elephant in this room would be disastrous.  But suggesting that there could be - that's easy. I just did it.  And once you've suggested an idea, no matter how crazy.  There are some people who think - "OK - why not?"
+
+And that's why we have Brexit.
+
+
 ### Gig No. 9 - Comedy 42 Stoke Newington
 
 <audio controls>
