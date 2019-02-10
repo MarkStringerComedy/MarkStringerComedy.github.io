@@ -2,9 +2,29 @@
 # Mark Stringer Comedy 
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Sunday February 10th 2019
+They say that all good things come to an end.  Which is why I know that Brexit will go on for fucking ever.
 
+### Friday February 8th 2019
 
-### Gig No. 10 - Happy Laugh Craft - Hoop and Toy, South Kensington
+### Joke No. 26 - You've Been Framed
+
+My advice is never attempt any activity that you've seen go horribly wrong on You've Been Framed.
+
+Trampolining. Roller skating.  Marriage.
+
+### Joke No. 25 - Netflix Death check
+
+Have ever watched so much Netflix that Netflix thinks it needs to check if you're dead? You know - it pops up that little window?
+"Are you still watching Netflix?" You appear to have been watching Silent Witness for 42 staight episodes.  If you are doing that to spank off to Emilia Fox - you probably need some fluids.
+
+---
+
+Ho hum. I don't have any gigs for a whole week. And I'm really missing it. The main thing that I want to do today is hothouse my routine (my wife had promised that she'll also listen to it).  I also want to do the "Fucking Toto" material so that I absolutely get the most out of it).
+
+### Wednesday February 6th 2019
+
+### Gig No. 10 - Happy Laugh Craft -  Hoop and Toy, South Kensington
 
 <audio controls>
   <source src="GigTenHoopAndToy.mp3" type="audio/mp3">
@@ -18,6 +38,10 @@ So I took out all the bits that I thought weren't working, but didn't seem to be
 What is occurring to me now is that I'm wondering what they want. 
 
 The best joke of the night was an ISA/Isis pun.  And again - I didn't get the name.
+
+### Joke No. 24
+
+It's always darkest just before the Dawn.  That's what we say in my family.  Because Dawn is huge.  She blocks out the light.
 
 ### Joke No. 23 - Plasticity
 
@@ -156,7 +180,7 @@ I once talked to this guy who was doing research on video games causing violence
 
 People must get actually killed while playing cluedo so often the forensics guys get bored of seeing it.
 
-"Yes, he's been superficially beaten about the head with the box. And then his head has been slammed repeatedly into the board - that's why the little candlestick and the revolver are embedded in his forhead. And as a simultaneous demonstration of overkill and futility he's been stabbed 43 times in the neck with a tiny, tiny, revolver."
+"Yes, he's been superficially beaten about the head with the box. And then his head has been slammed repeatedly into the board - that's why the little candlestick and the revolver are embedded in his forhead. And as a simultaneous demonstration of overkill and futility he's been stabbed 43 times in the neck with a tiny, tiny, dagger."
 
 ### Tuesday January 29th
 
