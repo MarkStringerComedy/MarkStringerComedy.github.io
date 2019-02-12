@@ -2,7 +2,26 @@
 # Mark Stringer Comedy 
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Tuesday February 12th 2019
+
+### Joke No. 30 - Bee holder
+Beauty is in the eye of the beholder
+Honey is in the hive of the beeholder 
+
+### Joke No. 29 - Now that's what I call Music
+
+When I lost weight something very strange happened - I started to get morning wood again. Which hadn't happened since I was in my early 20's.  It was a real surprise to find something I hadn't seen since the 80's in my pants.  Like finding Now That's What I Call Music Volume 3 in there on cassette.
+
+### Joke No. 28 - Heckler put down.
+
+What was that you said? What? What? Can't hear you.
+Now you're talking! And I really wish you wouldn't.
+
+
 ### Sunday February 10th 2019
+
+### Joke No. 27 -  Brexit forever
+
 They say that all good things come to an end.  Which is why I know that Brexit will go on for fucking ever.
 
 ### Friday February 8th 2019
