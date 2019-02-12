@@ -4,6 +4,11 @@
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 ### Tuesday February 12th 2019
 
+### Joke No. 31 -  Weirdest thing
+What's the weirdest thing you've got into trouble for doing *while* you're having sex?
+
+I got in a lot of trouble for answering general knowledge questions on Radio 4's Brain of Britain.
+
 ### Joke No. 30 - Bee holder
 Beauty is in the eye of the beholder
 Honey is in the hive of the beeholder 
