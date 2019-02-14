@@ -2,6 +2,12 @@
 # Mark Stringer Comedy 
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Wednesday February 13th 
+
+### Joke No. 32 - Shots Fired
+
+Shh! What's that? Shots fired. \[Sniffs elaborately\] Baileys? Absinthe, Feuerzangenbowle lit with a pertrol-fuelled Zippo lighter. Old school! What's that? \[Sniffs again\] the tears of Vicorian children corporally punished for even the slightest disciplinary lapse? Very old school.
+
 ### Tuesday February 12th 2019
 
 ### Joke No. 31 -  Weirdest thing
@@ -21,7 +27,6 @@ When I lost weight something very strange happened - I started to get morning wo
 
 What was that you said? What? What? Can't hear you.
 Now you're talking! And I really wish you wouldn't.
-
 
 ### Sunday February 10th 2019
 
@@ -93,6 +98,11 @@ And that's why we have Brexit.
 
 
 ### Gig No. 9 - Comedy 42 Stoke Newington
+
+Here's a video of this performance.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=FLzyCHx3aGxp6-R76RHNRfzw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 
 <audio controls>
   <source src="GigNineComedyFortyTwo.mp3" type="audio/mp3">
