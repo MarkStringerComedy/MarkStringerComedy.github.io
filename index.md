@@ -99,11 +99,6 @@ And that's why we have Brexit.
 
 ### Gig No. 9 - Comedy 42 Stoke Newington
 
-Here's a video of this performance.
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/videoseries?list=FLzyCHx3aGxp6-R76RHNRfzw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
 <audio controls>
   <source src="GigNineComedyFortyTwo.mp3" type="audio/mp3">
   <p>Your browser doesn't support HTML5 audio. Here is
@@ -112,7 +107,6 @@ Here's a video of this performance.
 <br />
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/M-YBiqwHvVw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 
 I think last night was one of the best. With some people coming up to me at the end and saying that they liked my set, in a room that had a *lot* of good comedians. 
 
