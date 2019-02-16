@@ -1,5 +1,5 @@
 ![Stand up comedy](StandUpBanner.jpg)
-# Mark Stringer Comedy
+# [Mark Stringer Comedy](index.md)
 
 [Comedy Calendar](calendar.md)
 
