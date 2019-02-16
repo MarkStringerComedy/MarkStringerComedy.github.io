@@ -1,0 +1,62 @@
+---
+ date: 
+	- day: 21
+	- month: Feb
+	- year: 2019
+        - start: 19:00
+	- end: 22:00
+        - description: [Gig] at Funny for Nothing - Need a Bringer
+###{ 
+###	"date": "24 Feb 2019 Sun",
+###	"start_time": "19:00", 
+###	"end_time": "23:00",
+###	"description": "[Gig] BringerCraig Butler Rising Star - King and Queen Foley Street"
+###}
+###{ 
+###	"date": "27 Feb 2019 Wed",
+###	"start_time": "19:00", 
+###	"stop_time": "23:00",
+###"description" : "[Gig][Bringer is Laura, CONFIRM] Strange Brew Comedy",
+###}
+###{ 
+###	"date": "28 Feb 2019 Thu", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:00", 
+###	"description" : "[Gig][No Bringer] Healing Comedy Club, at the Kings Arms Thu 28th February at The Kings Arms, 55 The Grove, Ealing, 7:00PM - 5 mins",
+###}
+###{ 
+###	"date": "8 Mar 2019 Fri", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:30", 
+###	"description" : "[Gig] Cav - Need a bringer",
+###}
+###{ 
+###	"date": "10 Mar 2019 Sun, 
+###	"start_time": "14:30", 
+###	"stop_time": "17:30", 
+###	"description" : "[Gig] Cav - Need a bringer",
+###}
+###{ 
+###	"date": "11 Mar 2019 Mon ", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:00",
+###	"description" : "[Gig] 5 min spot at Comedy Virgins stand up comedy night (Mondays) at Comedy Virgins The Cavendish Arms",
+###}
+###{ 
+###	"date": "18 Mar 2019 Mon ", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:00
+###	"description" : "[Gig] Cav - Need a bringer",
+###}
+###{ 
+###	"date": "21 Mar 2019 Thu ", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:00",
+###	"description" : "[Gig] 5 min spot at Comedy Virgins stand up comedy night (Thursdays) at Comedy Virgins The Cavendish Arms",
+###}
+###{ 
+###	"date": "27 Mar 2019 Wed ", 
+###	"start_time": "19:00", 
+###	"stop_time": "23:00
+###	"description" : "[Gig] Need a Bringer Hoxton Comedy Cabin Hoxton Cabin 132 Kingsland Road London E2 8DP",
+###}

@@ -1,0 +1,23 @@
+{
+    "title": "Gig",
+    "description": "Gig Description",
+    "type": "object",
+    "properties": {
+        "date": {
+            "description": "date of the gig",
+            "type": "string"
+        },
+        "start_time": {
+            "description": "time the gig starts",
+            "type": "string"
+        },
+        "stop_time": {
+  	    "description": "time the gig stops",
+            "type": "string"
+        },
+        "description": {
+	    "description": "full description",
+	    "type": "string"
+	}
+}
+}
