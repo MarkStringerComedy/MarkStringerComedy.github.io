@@ -5,6 +5,23 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Tuesday February 19th 2019
+
+### Joke No. 34 - Millenials
+
+Millenials? Eh? Who are they? Nobody seems to know.  People who've been born since the year 2000 people who've never know a world without the internet? People who like making hats? That's a niches artisanal craft pun there. Because people who like making hats are called milliners.
+
+They like drinking mud don't they? They all seem to be carrying around plastic bottles filled with mud.  Huel. A food that not only looks the same going down as it does coming back up, but sounds the same as well. Do you know what I find weirdest? The Christmast dinner version? Liquidised turkey sprouts and all the trimmings.  Including pudding.  Yuel Huel.
+
+And they, and by they I mean most you. Like putting their feet on the seats don't they? Why is that? Do you do that in your own house? Oh, sorry you don't own one do you. Is that what it is?  I don't have a sofa to call my own, I shall soil all the public ones.
+
+And tights.  Everybody is wearing tights. Men are wearing tights. Women are wearing tights. 
+
+### Joke No. 33 - Psycotic episode
+
+I this new material or a psychotic episode? Probably too early to tell.
+
+
 ### Monday February 18th
 
 ### Bringer No. 7 - Funny Feckers - The Dean Swift
