@@ -4,6 +4,20 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+### Monday February 18th
+
+### Bringer No. 7 - Funny Feckers - The Dean Swift
+This was a hilarious packed-out night. With the joke that stayed in my mind being the one from Vanessa Hua about her nickname being "Van."
+
+Funny Feckers is kind of the rolls-royce of open-mic bringer gigs. With somehow an even better vibe to it than the Cavendish Arms - with some kind of suspicion that more actual punters might be in the audience.  I would like to get on here, but I'm also a bit initimidated. It's certainly not really a new material night, although there were people on last night, including Katie Price who I've seen just a couple of months ago who were *much much* improved. It's a bit daunting.
+
+The opening comic was the only one that really struggled, and that was until he hit his stride dealing with the hecklers in the front row.
+
+It's made me more determined than ever to "hothouse" my comedy. I'm starting to think that the speed of my improvement will be directly connected to how much stage time and hothousing I've done.  The reason that hothousing feels so hard is that it's performing without the magical support of the audience. But I've got some strategies to do it anyway.
+
+I did an extra, not-strictly-stand-up comedy gig last week - Stand-up Agile. But at it I met a fellow stand-up comedian. Who recommended a couple of books that are hard to find on Amazon. "Killer Stand-up Comedy :Course 1:interactive Writing Guide by Steve Roye." I don't think I agree with eerything that he says. But one thing that I did find interesting was the idea of using stand-up comedy to teach things.  In fact it has given me an idea.
+
 ### Wednesday February 13th 
 
 ### Joke No. 32 - Shots Fired
