@@ -4,10 +4,29 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Thursday February 21st 2019
+
+### Gig No. 11 - Funny Box Live - The Good Intent
+
+I have a confession to make. I am a coward and an idiot. OK, the whole thing went a bit weird.  I had rehearsed a 5 minute set pretty solidly because I was expecting some people I knew to turn up as bringers. Then just at the end of day I noticed that actually I was *headlining* and I was supposed to 10 minutes.  So that was a rather hurried session of stitching back in some bits that I thought were maybe to rude to perform in front of my friends.  Then I get to the pub. And the pub is rough as. And the stage where the stand-up is happening isn't in a separate room, it's just at one end of the bar.  And the locals are rough as.
+
+The compere is a delightful young guy called Richard.  Who is seriously visually impaired, but is doing a stella job anyway.  And I am definitely going to do my 10 minutes. But I'm a bit worried about my guests coming to this rough as pub.  So I ring my wife in a panic.  Sort of half hoping that she'll volunteer to come out and rescue our friends. And she says, get out of there. What the hell are you doing in such a rough pub.  And then guess what happened?
+
+* The locals moved to the other bar
+* The place filled up with comics and their Bringers
+* Everthing was fine, my friends enjoyed themselves
+* I went on last, and if not exactly smashing it, did OK
+
+So it just goes to show.  A cowardly comic dies a thousand times.  A brave one, well a bit less.
 
 ### Tuesday February 19th 2019
 
-### Joke No. 34 - Millenials
+### Joke No. 35 - Brian Blessed
+
+Blessed are the peacemakers - Jesus said that.  Except Brian Blessed.  He's really loud.  Jesus didn't say that. But he could have, because you see Jesus is God on earth.  And God is omniscient he knows everything across all of space and time.  So when Jesus was delivering the sermon on the mount, he was aware - even though he was talking in Aramaic, he was aware that there'd be pun in the English translation.  But he didn't go for it.
+But then, I suppose Jesus isn't really a stand-up comedian - he's more of a hang-up tragedian. 
+
+### Joke No. 34 -  Millenials
 
 Millenials? Eh? Who are they? Nobody seems to know.  People who've been born since the year 2000 people who've never know a world without the internet? People who like making hats? That's a niches artisanal craft pun there. Because people who like making hats are called milliners.
 
