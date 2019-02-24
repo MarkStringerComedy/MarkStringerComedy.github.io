@@ -4,6 +4,14 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Sunday 24th February 2019
+
+### Joke No. 37 Bermuda Triangle
+As part of the oral sex humming bit? Bermuda triangle, by Barry Manilow?
+
+### Joke No 36. Comfort Zone
+I like comedy.  It pushes me outside of my comfort zone.  And to be clear my comfort zone is sitting at home watching an episode of Poirot where I can't remember who the murder is, while asking my wife "what's wrong" and she's still not so drunk that she's actually going to tell me.
+
 ### Thursday February 21st 2019
 
 ### Gig No. 11 - Funny Box Live - The Good Intent
