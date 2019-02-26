@@ -4,12 +4,35 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+### Don't Dwell on the Negatives...
+I've seen a few promoters of open mic comedy nights complaining about acts either turning up late or not turning up at all and threatening to not allow acts on if they don't turn up at their alloted time.
+
+I can easily see that it must be very annoying if you're a promoter that acts either don't turn up, or swan in at the last minute.  On the other hand, I think it's really important to remember that the acts are doing what they do for *FREE* - and if it's a bringer, they're also imposing on someone else to come with them.
+
+A promoter has just told me that I shouldn't try to get a spot at his gig because I've dared to cancel his gig and then advertise that I'm free that night to be a bringer.  I'm sorry - do we have any kind of relationship of obligation? When I cancelled your gig it was because I wasn't free that night.  When I advertised that I can be a bringer that was because my circ's had changed.
+
+### Joke No. 38
+
+And that's why we say "You can't make an omelette without breaking legs." - Ah - sorry, wrong speech - that's just the end of my talk on Mary Berry's martial arts course: Dùn tāng de fāngshì - way of the blunt spoon.  You don't spend 10 years standing next to a Scouser and keep your jewellery without knowing a thing or two about defending yourself with kithchen implements.
+
+Yeah that's right. It's just a basic joke about people from Liverpool being criminals dressed up in a cultural reference and a twinset and perls. 
+
 ### Sunday 24th February 2019
+
+### Gig No. 12 Rising Star and the King and Queen in Fitzrovia
+The compere completely threw me by owning up to being the elephant. But these are definitely the biggest laughs I've got so far this year.
+
+<audio controls>
+  <source src="GigTwelveRisingStarKingAndQueenFitzrovia.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTwelveRisingStarKingAndQueenFitzrovia.mp3">link to the audio</a> instead.</p>
+</audio>
 
 ### Joke No. 37 Bermuda Triangle
 As part of the oral sex humming bit? Bermuda triangle, by Barry Manilow?
 
-### Joke No 36. Comfort Zone
+### Joke No. 36 Comfort Zone
 I like comedy.  It pushes me outside of my comfort zone.  And to be clear my comfort zone is sitting at home watching an episode of Poirot where I can't remember who the murder is, while asking my wife "what's wrong" and she's still not so drunk that she's actually going to tell me.
 
 ### Thursday February 21st 2019
