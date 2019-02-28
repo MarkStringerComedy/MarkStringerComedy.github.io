@@ -5,12 +5,30 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Bringer No. 10
+
+Watching people doing filthy stuff.  Maybe it's just filthy stuff that I'm not into to. Makes me wonder abot my filthy stuff. But then again, it feels like I've been out a hell of a lot in the last few nights.
+
+I'm looking forward to not being out Saturday and Sunday nights
+
+### Joke No. 39 
+
+I was doing this gig in a really rough pub last week.  There were these locals at the bar. Who were giving me really mean looks.  And I don't scare easily.  Sorry.  What am I talking about.  I scare really easily. 
+
+### Wednesday 27th February 2019
+
 ### Gig No. 13 Strange Brew Comedy Deptford
 <audio controls>
   <source src="GigThirteenStrangeBrewComedyDeptford.mp3" type="audio/mp3">
   <p>Your browser doesn't support HTML5 audio. Here is
      a <a href="GigThirteenStrangeBrewComedyDeptford.mp3">link to the audio</a> instead.</p>
 </audio>
+
+### Tuesday 26th February 2019 - TNT Comedy - The Vine, Tufnell Park
+
+### Bringer No. 9
+
+Everybody who went on here seemed so good - there didn't seem to be a wrong 'un all. night.
 
 ### Don't Dwell on the Negatives...
 I've seen a few promoters of open mic comedy nights complaining about acts either turning up late or not turning up at all and threatening to not allow acts on if they don't turn up at their alloted time.
