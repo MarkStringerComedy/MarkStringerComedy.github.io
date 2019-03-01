@@ -5,9 +5,20 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 40 - Spice Girls
+
+I had this nightmare.  There was this terrifying monster coming to get me. And I could see that it had eight legs and I thought, no actually I knew it was the Kraken.  But then I counted more carefully and realised that it had ten legs and five vaginas.  It was the Spice Girls.
+
+And so they asked me to tell them what I wanted, what I really wanted. And I said a kitkat.  And they said we're all out of kitkats how about a Twix? And I said hmmph. Alright then. 
+
+Then Emma Bunton gave me a sparkly look and they fucked off on a union jack double decker bus.  That should have been the giveaway.
+
+
 ### Bringer No. 10 - Funny Feckers, The Constitution Camden
 
 Watching people doing filthy stuff.  Maybe it's just filthy stuff that I'm not into. I just don't find most bestiality and incest jokes funny. Does that make me a prude?
+
+There was a good joke from someone who practised polyamoury (I'm not really sure I know what that means) about google calendars.
 
 Makes me wonder about my filthy stuff. But then again, it feels like I've been out a hell of a lot in the last few nights. Maybe I'm just tired.
 
@@ -15,11 +26,11 @@ I'm looking forward to not being out Saturday and Sunday nights
 
 ### Joke No. 39 
 
-I was doing this gig in a really rough pub last week.  There were these locals at the bar. Who were giving me really mean looks.  And I don't scare easily.  Sorry.  What am I talking about.  I scare really easily. 
+I was doing this gig in a really rough pub last week.  There were these locals at the bar. They were giving me really mean looks. And I don't scare easily.  Sorry.  What am I talking about. I scare really easily. 
 
 ### Wednesday 27th February 2019
 
-### Gig No. 13 Strange Brew Comedy Deptford
+B### Gig No. 13 Strange Brew Comedy Deptford
 
 Most of this (all the Jesus Brian Blessed stuff) was completely new.  I went on too long. But I'm really glad that I did it.  The previous times that I've been here the audience has been bigger than it was tonight.  The end of February seems to have resulted in a weird shrinkage in the interest of doing and watching comedy. All over facebook you've seen the plaintive calls of promoters. 
 
@@ -33,10 +44,11 @@ Most of this (all the Jesus Brian Blessed stuff) was completely new.  I went on 
 
 ### Bringer No. 9
 
-Everybody who went on here seemed so good - there didn't seem to be a wrong 'un all. night.
+Everybody who went on here seemed so good - there didn't seem to be a wrong 'un. All night.
 
 ### Don't Dwell on the Negatives...
 I've seen a few promoters of open mic comedy nights complaining about acts either turning up late or not turning up at all and threatening to not allow acts on if they don't turn up at their allotted time.
+
 
 I can easily see that it must be very annoying if you're a promoter that acts either don't turn up, or swan in at the last minute.  On the other hand, I think it's really important to remember that the acts are doing what they do for *FREE* - and if it's a bringer, they're also imposing on someone else to come with them.
 
