@@ -7,7 +7,10 @@
 
 ### Bringer No. 10 - Funny Feckers, The Constitution Camden
 
-Watching people doing filthy stuff.  Maybe it's just filthy stuff that I'm not into to. Makes me wonder abot my filthy stuff. But then again, it feels like I've been out a hell of a lot in the last few nights.
+Watching people doing filthy stuff.  Maybe it's just filthy stuff that I'm not into. I just don't find most bestiality and incest jokes funny. Does that make me a prude?
+
+Makes me wonder about my filthy stuff. But then again, it feels like I've been out a hell of a lot in the last few nights. Maybe I'm just tired.
+
 I'm looking forward to not being out Saturday and Sunday nights
 
 ### Joke No. 39 
@@ -33,7 +36,7 @@ Most of this (all the Jesus Brian Blessed stuff) was completely new.  I went on 
 Everybody who went on here seemed so good - there didn't seem to be a wrong 'un all. night.
 
 ### Don't Dwell on the Negatives...
-I've seen a few promoters of open mic comedy nights complaining about acts either turning up late or not turning up at all and threatening to not allow acts on if they don't turn up at their alloted time.
+I've seen a few promoters of open mic comedy nights complaining about acts either turning up late or not turning up at all and threatening to not allow acts on if they don't turn up at their allotted time.
 
 I can easily see that it must be very annoying if you're a promoter that acts either don't turn up, or swan in at the last minute.  On the other hand, I think it's really important to remember that the acts are doing what they do for *FREE* - and if it's a bringer, they're also imposing on someone else to come with them.
 
@@ -41,9 +44,9 @@ A promoter has just told me that I shouldn't try to get a spot at his gig becaus
 
 ### Joke No. 38
 
-And that's why we say "You can't make an omelette without breaking legs." - Ah - sorry, wrong speech - that's just the end of my talk on Mary Berry's martial arts course: Dùn tāng de fāngshì - way of the blunt spoon.  You don't spend 10 years standing next to a Scouser and keep your jewellery without knowing a thing or two about defending yourself with kithchen implements.
+And that's why we say "You can't make an omelette without breaking legs." - Ah - sorry, wrong speech - that's just the end of my talk on Mary Berry's martial arts course: Dùn tāng de fāngshì - way of the blunt spoon.  You don't spend 10 years standing next to a Scouser and keep your jewellery without knowing a thing or two about defending yourself with kitchen implements.
 
-Yeah that's right. It's just a basic joke about people from Liverpool being criminals dressed up in a cultural reference and a twinset and perls. 
+Yeah that's right. It's just a basic joke about people from Liverpool being criminals dressed up in a cultural reference and a twinset and pearls. 
 
 ### Sunday 24th February 2019
 
@@ -68,11 +71,11 @@ I like comedy.  It pushes me outside of my comfort zone.  And to be clear my com
 
 I have a confession to make. I am a coward and an idiot. OK, the whole thing went a bit weird.  I had rehearsed a 5 minute set pretty solidly because I was expecting some people I knew to turn up as bringers. Then just at the end of day I noticed that actually I was *headlining* and I was supposed to 10 minutes.  So that was a rather hurried session of stitching back in some bits that I thought were maybe to rude to perform in front of my friends.  Then I get to the pub. And the pub is rough as. And the stage where the stand-up is happening isn't in a separate room, it's just at one end of the bar.  And the locals are rough as.
 
-The compere is a delightful young guy called Richard.  Who is seriously visually impaired, but is doing a stella job anyway.  And I am definitely going to do my 10 minutes. But I'm a bit worried about my guests coming to this rough as pub.  So I ring my wife in a panic.  Sort of half hoping that she'll volunteer to come out and rescue our friends. And she says, get out of there. What the hell are you doing in such a rough pub.  And then guess what happened?
+The compere is a delightful young guy called Richard.  Who is seriously visually impaired, but is doing a stellar job anyway.  And I am definitely going to do my 10 minutes. But I'm a bit worried about my guests coming to this rough as pub.  So I ring my wife in a panic.  Sort of half hoping that she'll volunteer to come out and rescue our friends. And she says, get out of there. What the hell are you doing in such a rough pub.  And then guess what happened?
 
 * The locals moved to the other bar
 * The place filled up with comics and their Bringers
-* Everthing was fine, my friends enjoyed themselves
+* Everything was fine, my friends enjoyed themselves
 * I went on last, and if not exactly smashing it, did OK
 
 So it just goes to show.  A cowardly comic dies a thousand times.  A brave one, well a bit less.
@@ -88,13 +91,13 @@ But then, I suppose Jesus isn't really a stand-up comedian - he's more of a hang
 
 Millenials? Eh? Who are they? Nobody seems to know.  People who've been born since the year 2000 people who've never know a world without the internet? People who like making hats? That's a niches artisanal craft pun there. Because people who like making hats are called milliners.
 
-They like drinking mud don't they? They all seem to be carrying around plastic bottles filled with mud.  Huel. A food that not only looks the same going down as it does coming back up, but sounds the same as well. Do you know what I find weirdest? The Christmast dinner version? Liquidised turkey sprouts and all the trimmings.  Including pudding.  Yuel Huel.
+They like drinking mud don't they? They all seem to be carrying around plastic bottles filled with mud.  Huel. A food that not only looks the same going down as it does coming back up, but sounds the same as well. Do you know what I find weirdest? The Christmas dinner version? Liquidised turkey sprouts and all the trimmings.  Including pudding.  Yule Huel.
 
 And they, and by they I mean most you. Like putting their feet on the seats don't they? Why is that? Do you do that in your own house? Oh, sorry you don't own one do you. Is that what it is?  I don't have a sofa to call my own, I shall soil all the public ones.
 
 And tights.  Everybody is wearing tights. Men are wearing tights. Women are wearing tights. 
 
-### Joke No. 33 - Psycotic episode
+### Joke No. 33 - Psychotic episode
 
 I this new material or a psychotic episode? Probably too early to tell.
 
@@ -104,19 +107,19 @@ I this new material or a psychotic episode? Probably too early to tell.
 ### Bringer No. 7 - Funny Feckers - The Dean Swift
 This was a hilarious packed-out night. With the joke that stayed in my mind being the one from Vanessa Hua about her nickname being "Van."
 
-Funny Feckers is kind of the rolls-royce of open-mic bringer gigs. With somehow an even better vibe to it than the Cavendish Arms - with some kind of suspicion that more actual punters might be in the audience.  I would like to get on here, but I'm also a bit initimidated. It's certainly not really a new material night, although there were people on last night, including Katie Price who I've seen just a couple of months ago who were *much much* improved. It's a bit daunting.
+Funny Feckers is kind of the rolls-Royce of open-mic bringer gigs. With somehow an even better vibe to it than the Cavendish Arms - with some kind of suspicion that more actual punters might be in the audience.  I would like to get on here, but I'm also a bit intimidated. It's certainly not really a new material night, although there were people on last night, including Katie Price who I've seen just a couple of months ago who were *much much* improved. It's a bit daunting.
 
 The opening comic was the only one that really struggled, and that was until he hit his stride dealing with the hecklers in the front row.
 
-It's made me more determined than ever to "hothouse" my comedy. I'm starting to think that the speed of my improvement will be directly connected to how much stage time and hothousing I've done.  The reason that hothousing feels so hard is that it's performing without the magical support of the audience. But I've got some strategies to do it anyway.
+It's made me more determined than ever to "hothouse" my comedy. I'm starting to think that the speed of my improvement will be directly connected to how much stage time and hot-housing I've done.  The reason that hot-housing feels so hard is that it's performing without the magical support of the audience. But I've got some strategies to do it anyway.
 
-I did an extra, not-strictly-stand-up comedy gig last week - Stand-up Agile. But at it I met a fellow stand-up comedian. Who recommended a couple of books that are hard to find on Amazon. "Killer Stand-up Comedy :Course 1:interactive Writing Guide by Steve Roye." I don't think I agree with eerything that he says. But one thing that I did find interesting was the idea of using stand-up comedy to teach things.  In fact it has given me an idea.
+I did an extra, not-strictly-stand-up comedy gig last week - Stand-up Agile. But at it I met a fellow stand-up comedian. Who recommended a couple of books that are hard to find on Amazon. "Killer Stand-up Comedy :Course 1:interactive Writing Guide by Steve Roye." I don't think I agree with everything that he says. But one thing that I did find interesting was the idea of using stand-up comedy to teach things.  In fact it has given me an idea.
 
 ### Wednesday February 13th 
 
 ### Joke No. 32 - Shots Fired
 
-Shh! What's that? Shots fired. \[Sniffs elaborately\] Baileys? Absinthe, Feuerzangenbowle lit with a pertrol-fuelled Zippo lighter. Old school! What's that? \[Sniffs again\] the tears of Vicorian children corporally punished for even the slightest disciplinary lapse? Very old school.
+Shh! What's that? Shots fired. \[Sniffs elaborately\] Baileys? Absinthe, Feuerzangenbowle lit with a petrol-fuelled Zippo lighter. Old school! What's that? \[Sniffs again\] the tears of Victorian children corporeally punished for even the slightest disciplinary lapse? Very old school.
 
 ### Tuesday February 12th 2019
 
@@ -127,7 +130,7 @@ I got in a lot of trouble for answering general knowledge questions on Radio 4's
 
 ### Joke No. 30 - Bee holder
 Beauty is in the eye of the beholder
-Honey is in the hive of the beeholder 
+Honey is in the hive of the bee-holder 
 
 ### Joke No. 29 - Now that's what I call Music
 
@@ -155,7 +158,7 @@ Trampolining. Roller skating.  Marriage.
 ### Joke No. 25 - Netflix Death check
 
 Have ever watched so much Netflix that Netflix thinks it needs to check if you're dead? You know - it pops up that little window?
-"Are you still watching Netflix?" You appear to have been watching Silent Witness for 42 staight episodes.  If you are doing that to spank off to Emilia Fox - you probably need some fluids.
+"Are you still watching Netflix?" You appear to have been watching Silent Witness for 42 straight episodes.  If you are doing that to spank off to Emilia Fox - you probably need some fluids.
 
 ---
 
@@ -172,7 +175,7 @@ Ho hum. I don't have any gigs for a whole week. And I'm really missing it. The m
 </audio>
 <br />
 
-So I took out all the bits that I thought weren't working, but didn't seem to be able to connect. So I'm comforting myself, listening back to this that at least I'm clear. I can be heard. I'm not talking too fast, I'm not humming and ahing. They're listening to what I have to say.
+So I took out all the bits that I thought weren't working, but didn't seem to be able to connect. So I'm comforting myself, listening back to this that at least I'm clear. I can be heard. I'm not talking too fast, I'm not humming and awing. They're listening to what I have to say.
 
 What is occurring to me now is that I'm wondering what they want. 
 
@@ -200,7 +203,7 @@ I thought I'd just talk about my ailments for a bit - because I know that that's
 
 ### Joke No. 20 - More Elephant in the room
 
-You see the Elephant in the room is an interesting idea because it's obviously insane.  There is no Elephant in the room. If there were an elephant in this room, that would be a complete disaster, it would be mayhem.  I was at gig just recently when somebody brought a pitbull to an open mic gig.  That was bad enough.
+You see the Elephant in the room is an interesting idea because it's obviously insane.  There is no Elephant in the room. If there were an elephant in this room, that would be a complete disaster, it would be mayhem.  I was at gig just recently when somebody brought a pit bull to an open mic gig.  That was bad enough.
 
 Actually having an elephant in this room would be disastrous.  But suggesting that there could be - that's easy. I just did it.  And once you've suggested an idea, no matter how crazy.  There are some people who think - "OK - why not?"
 
@@ -224,7 +227,7 @@ The chap who runs Comedy 42 is called Vittorio and he runs it very well.  I like
 
 One thing that's interesting now - and I think this is something that I need to get better at - is polishing the bits that work. There's a bit in the bit about oral sex that I think I've only managed to do once and I haven't managed to do right yet.  It would be great to get that right. And I think that probably needs some hot housing.  If I'm not going out doing gigs for a while, then I'll get a chance to do that I suppose.
 
-At the same time I'm exasperated that I can't get the Brexit stuff to fly, and I'm wondering if it needs to be a combination of hothousing (that's my fancy word for practice) and actually writing out the routines and thinking of different bits that I can add.
+At the same time I'm exasperated that I can't get the Brexit stuff to fly, and I'm wondering if it needs to be a combination of hot-housing (that's my fancy word for practice) and actually writing out the routines and thinking of different bits that I can add.
 
 I wrote this little computer program called "ekeez" - after "Cadaver Equise" which is a surrealist game. I would really like my comedy to be more surreal but the stuff that I've tried in this area (the monkey's driving the bus stuff that I tried last night) hasn't worked. Yet.  I'm going to say yet. See? Positive thinking. All the little program does is read the last line from a file and then print it out, and then wait for you to type in another line, which it adds to the file. This is basically playing a game on my own that Logan Murray taught us how to play in groups. 
 
@@ -269,7 +272,7 @@ Gigging in the afternoon? Weird.  I was focused on setting up a timer and record
 
 I thought a lot of the other comedians were *very* good and I did find myself spilling out into the South Kensington freezing afternoon wondering why I am doing this (the questions pretty much everybody else asks me).
 
-But I did do the whole of the Fucking ToTo, ToTo, TuTu. Bit which I've no idea where it came from, but there we are. So I came away with a bunch of resolutions.
+But I did do the whole of the Fucking Toto, Toto, Tutu. Bit which I've no idea where it came from, but there we are. So I came away with a bunch of resolutions.
 
 1) Hothouse your routines when you have new material in them (I don't quite know how I'm going to do that before tomorrow night, but, anyway, that's the resolution).
 2) Keep writing - doing the hadron joke collider etc really works, even when it doesn't work.
