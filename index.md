@@ -5,10 +5,9 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
-### Bringer No. 10
+### Bringer No. 10 - Funny Feckers, The Constitution Camden
 
 Watching people doing filthy stuff.  Maybe it's just filthy stuff that I'm not into to. Makes me wonder abot my filthy stuff. But then again, it feels like I've been out a hell of a lot in the last few nights.
-
 I'm looking forward to not being out Saturday and Sunday nights
 
 ### Joke No. 39 
@@ -18,6 +17,9 @@ I was doing this gig in a really rough pub last week.  There were these locals a
 ### Wednesday 27th February 2019
 
 ### Gig No. 13 Strange Brew Comedy Deptford
+
+Most of this (all the Jesus Brian Blessed stuff) was completely new.  I went on too long. But I'm really glad that I did it.  The previous times that I've been here the audience has been bigger than it was tonight.  The end of February seems to have resulted in a weird shrinkage in the interest of doing and watching comedy. All over facebook you've seen the plaintive calls of promoters. 
+
 <audio controls>
   <source src="GigThirteenStrangeBrewComedyDeptford.mp3" type="audio/mp3">
   <p>Your browser doesn't support HTML5 audio. Here is
