@@ -5,6 +5,24 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 14, Comedy Be East - The Beehive, Bow
+
+<audio controls>
+  <source src="GigFourteenComedyBeEastBow.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFourteenComedyBeEastBow.mp3">link to the audio</a> instead.</p>
+</audio>
+
+Another "rough" pub. But also a kind of "rough" set of comics. There was some jiggery pokery with the order so that this one "comic" could be on last before the headline act. What he tried to do was "kill the room" - be totally obnoxious so that nobody wants to laugh at the next comic - a muslim female comic - Sadia Azmat. He also had a go at one of the older guys who had been on earlier and said he looked like Roger Scruton. For him I could see that was only going to be (even slightly) funny if nobody knew who Roger Scruton was.  So I shouted out "I know who Roger Scruton is."  I wish I'd shouted out "I know who Roger Scruton is, he's fucking funnier than you."
+
+So to be fair to this notionally "rough" pub.  The people who were actually the most grief were other comedians rather than the locals.
+
+One thing that I've noticed about the six/seven weeks that I've been on this comedy quest - I've become a lot more reticent on social media.  Mainly I just try to find Bringers now.
+
+There is a quote - I can't find where it came from.  You can only make jokes about things that you really understand. And I find that I don't really understand most things.
+
+I can make angry facebook or twitter-ragey posts about them.  But actually understanding them? That's a *lot* trickier.
+
 ### Joke No. 40 - Spice Girls
 
 I had this nightmare.  There was this terrifying monster coming to get me. And I could see that it had eight legs and I thought, no actually I knew it was the Kraken.  But then I counted more carefully and realised that it had ten legs and five vaginas.  It was the Spice Girls.
