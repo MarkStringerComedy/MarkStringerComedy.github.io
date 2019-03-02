@@ -5,6 +5,31 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Saturday 2nd March 2019
+
+### What the Fuck Am I Doing
+
+Last night at the Beehive was my second rough pub in two weeks and that would make it about my third in two years. And there were some people at the gig last night who really weren't nice.  At the same time I got chatting to someone who Facebook (because it knows a lot more about these things than I do) thought I should have been friends with for ages.  And I also got talking to a woman called Sydney from New York.  Sitting at the back of the gig chatting I somehow felt that I was in the right place.
+
+There are two things that you get asked a lot if you do stand-up comedy. 
+
+1. How do you manage to get up on the stage.
+Answer: Given the right psychopathology, it's almost impossible not to.
+2. Why do you want to do that?
+Answer: See Answer 1, but also there is a huge satisfaction gained from writing something and finishing it. I've tried to write novels. I've tried to write books about my work.  I haven't managed to finish them. I can get an idea for a joke, write it down and then go somewhere and say it out loud.  And people either laugh or they don't.  If they don't I drop it (unless I really like it) if they laugh I'll keep it and polish it.
+ 
+Most of us don't get to be artists. Most of us don't get "creative control" over anything. People who have gardens, allotments, front rooms that they obsessively decorate - that's what they're doing.  They're finding a tiny square that they control. Those 5 minutes on stage are my allotment. 
+
+But I was reading something else this morning that made me think that comedy is also something else.
+
+I was reading a quote from Douglas Adams (because I think he said that you can only really make a joke about something that you understand). And I found another quote from him which really resonated: "What I need is strong drink and a peer group." 
+
+A comedy club is a kind of theatre. Everyone is in the dark apart from the man with the talking stick. It's probably bollocks, but that kind of seems atavistic, primordial, a modern version of telling stories around a campfire (mainly about sexual dysfunction and daddy not loving us, but hey).  And I'm often struck by how the most un promising of rooms can get transformed into a comedy club with just a little bit of rearranging of chairs and dimming and turning of lights.
+
+And when they laugh. Oh my fucking word.  When they laugh.
+
+### Friday 1st March 2019
+
 ### Gig No. 14, Comedy Be East - The Beehive, Bow
 
 <audio controls>
