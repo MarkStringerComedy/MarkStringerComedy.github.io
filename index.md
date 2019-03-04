@@ -5,6 +5,17 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Monday 4th March 2019
+
+### Joke No. 41
+
+I think I know you're all optimists who see the positive aspects of any situation. 
+
+How do I know this? If you look back at the times you've had the most fun, if you remember the times when you've been happiest - my guess is they weren't in comedy clubs.
+
+And yet here you are. See that's optimism.
+
+
 ### Saturday 2nd March 2019
 
 ### What Am I Doing?
