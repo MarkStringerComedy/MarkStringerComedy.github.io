@@ -7,7 +7,7 @@
 
 ### Saturday 2nd March 2019
 
-### What the Fuck Am I Doing
+### What Am I Doing?
 
 Last night at the Beehive was my second rough pub in two weeks and that would make it about my third in two years. And there were some people at the gig last night who really weren't nice.  At the same time I got chatting to someone who Facebook (because it knows a lot more about these things than I do) thought I should have been friends with for ages.  And I also got talking to a woman called Sydney from New York.  Sitting at the back of the gig chatting I somehow felt that I was in the right place.
 
