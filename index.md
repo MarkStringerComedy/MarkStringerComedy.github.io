@@ -4,6 +4,29 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Bringer No. 11 
+
+In the same weird Old Street Basement. It was supposed to be a bringer (that's why I was there) but the guy that I was supporting seemed to be the only person who actually bothered to arrange anyone. Leaving us both feeling a bit short-changed. I suppose I could have pushed myself onto the bill but I didn't fancy this being the third time this week that I've done my set to a less-than-receptive audience. Regetting it now. Should always at least ask.
+
+### Gig No. 16 - Love Comedy Old Street
+A weird gig in an Old Street basement.  Not a Bringer, so no audience. You can totally see why Bringers came about. One the other hand, this is genuinely how popular you are. This is actually how much other people want to see you. This is a bit of a low point. Feel like I need a bit of a rest.
+
+<audio controls>
+  <source src="GigSixteenLoveComedyOldStreet.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigSixteenLoveComedyOldStreet.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Gig No. 15 - Right Comedy Hawkins Forge 
+On nights where the audience isn't that lively, I'm not doing that well.  This is the second outing for this material, and the first time it worked pretty well.  But tonight? Not so much.
+
+It's very instructive to see other comedians do a much better job of it.  Heidi Regan was particular good I thought. Rather weirdly I got into an argument with my bringer about what kind of material I should be doing. 
+
+<audio controls>
+  <source src="GigFifteenRightFunnyComedyClapham.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFifteenRightFunnyComedyClapham.mp3">link to the audio</a> instead.</p>
+</audio>
 
 ### Monday 4th March 2019
 
