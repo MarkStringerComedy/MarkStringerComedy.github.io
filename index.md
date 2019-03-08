@@ -4,6 +4,17 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+### Joke No. 41 
+
+Just a bit about me.  This bit. \[points to bit of chest\] This bit is about me. This bit? \[points around\] This bit is around me.  That bit? \[points far away\] That's beyond me.
+
+You know when people say.  It's not all about you. That's totally wrong isn't it.  Because apart from what I had for lunch and some internal organs.  Literally everything else is about me.
+
+Some prepositional humour there.
+
+Don't worry - there'll be someone along complaining about Tinder in about 4 minutes.
+
 ### Bringer No. 11 
 
 In the same weird Old Street Basement. It was supposed to be a bringer (that's why I was there) but the guy that I was supporting seemed to be the only person who actually bothered to arrange anyone. Leaving us both feeling a bit short-changed. I suppose I could have pushed myself onto the bill but I didn't fancy this being the third time this week that I've done my set to a less-than-receptive audience. Regetting it now. Should always at least ask.
