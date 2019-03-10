@@ -7,6 +7,14 @@
 
 ### Sunday 10th March 2019
 
+### Gig No. 18 - Comedy Virgins, Cavendish Arms, Stockwell
+
+I don't know what to make of what happened this afternoon. I was on last. And the compere completely bigged me up.  I think I did OK, but what I really wanted to do was smash it.  I tried a bunch of new stuff to open, which was probably not the best thing to do. But again, instinctively, especially at this stage, I don't want to restrict myself totally to just the same routine over and over again.
+
+For the second time in two gigs, I forgot to record myself, which is really bad. I need to listen back to these. 
+
+Look at me.  It was a good gig. It certainly wasn't a death and I'm agonising over how I could have been funnier.  The nights when you totally smash it will most probably be the ones that you least expect.
+
 ### Joke No. 43 (it's a bit really)
 Weak Joke Hospital
 
@@ -20,7 +28,7 @@ This is what athleisure wear looks like if you don't do any ath.
 
 \[Dirty version of that joke that I can probably never use\]
 
-Ass leisure wear.  Anybody who is wearing Assleisure were is either inadvertently or advertently telling you just how much fun their ass would me. 
+Ass leisure wear.  Anybody who is wearing assleisure were is either inadvertently or advertently telling you just how much fun their ass would me. 
 
 No alarms.  No surprises.  This is what you're getting.
 
