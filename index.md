@@ -5,6 +5,38 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Sunday 10th March 2019
+
+### Joke No. 43 (it's a bit really)
+Weak Joke Hospital
+
+This is a bit where I read you out my weakest, barely alive, feeding them milk through a pipette even though they're not mammals and the lactose will probably kill them, jokes.
+
+And together we try to decide if they're any hope of them recovering, flapping their wings and making it into a comedy routine, or should we put them in a cloth sack and drop them in the Thames. 
+
+### Joke No. 42 - No Ath
+
+This is what athleisure wear looks like if you don't do any ath.
+
+\[Dirty version of that joke that I can probably never use\]
+
+Ass leisure wear.  Anybody who is wearing Assleisure were is either inadvertently or advertently telling you just how much fun their ass would me. 
+
+No alarms.  No surprises.  This is what you're getting.
+
+### Friday 8th March 2019 
+
+### Gig No. 17 - Comedy Virgins, Cavendish Arms, Stockwell
+
+Didn't manage to record this one. I thought it went pretty well, but there was no acclaim to buy me a drink. :-(
+
+Interestingly, it was a short Bill of comedians because there'd been some mix-up with bookings and there were karaoke people coming in straight-away afterwards. 
+
+The result of that was that I didn't need to get away straight away afterwards and so got rather drunk!
+
+It was international woman's day. And some comic called me out for doing some material about oral sex. Although in life, I often do, when I'm telling jokes, I really don't want to offend anyone.
+
+
 ### Joke No. 41 
 
 Just a bit about me.  This bit. \[points to bit of chest\] This bit is about me. This bit? \[points around\] This bit is around me.  That bit? \[points far away\] That's beyond me.
