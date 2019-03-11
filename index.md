@@ -6,13 +6,18 @@
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
 
+
 ### Monday 11th March 2019
+
+### Joke No. 45 - Lovely audience
+
+I've been listen to you guys.  I think you're a lovely audience. Lovely. But very discerning. You seem to be sitting there saying "Mmm, I'm only going to laugh at an observation that uniquely captures the tragi-comic nature of the human condition." That or a really good knob gag.
 
 ### Joke No. 44 (addition bit for "Now THAT's what I call music")
 
 One of the unexpected effects of losing weight for me has been that I've started to get "morning wood" again - for the first time since my 20's. 
 
-It's like finding something really unexpected from the 80's in your pants, like a "Now that's what I call music 3" audio cassette in your pants. And my wife said - it would have been even more surprising if it were a 12 inch.
+It's like finding something really unexpected from the 80's in your pants, like a "Now that's what I call music 3" audio cassette in your pants. And my wife said - it would have been even more surprising if it were a 12 inch and black.
 
 \(In my defence, when I was thinking of this last night in bed it seemed funny\)
 
