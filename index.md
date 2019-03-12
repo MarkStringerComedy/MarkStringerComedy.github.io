@@ -5,7 +5,15 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Tuesday 12th March 2019
 
+### Joke No. 46 - Surprise Parties
+
+Now you may think that it would be great to know everything through all time. But it does have some drawbacks.  God knew that Bruce Willis was seeing dead people right at the beginning of that movie.
+
+You can't play a game of patience.  And nobody's going to play poker with you.
+
+And never, since the beginning of time has anyone thrown you a surprise party.
 
 ### Monday 11th March 2019
 
