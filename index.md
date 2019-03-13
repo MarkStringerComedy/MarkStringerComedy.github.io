@@ -7,6 +7,39 @@
 
 ### Tuesday 12th March 2019
 
+### Gig No. 19 Comedy 42 - Stoke Newington
+
+So there was a lesson from last night and that lesson was that I shouldn't drink.  Especially BEFORE I go on stage.
+
+The whole point of being out last night and sitting in an underground cavern between the hours of 7 and 11:30! Was so that I could go on stage and I was drunk, to be frank, when I got there.
+
+The results of that were mixed.
+
+1. Forgot to turn on either my recorder or my timer (in this gig the recorder was far more important than the timer) - BAD
+
+2. I did some totally new material that I otherwise wouldn't have done - GOOD
+
+3. I did some "questionable" material that I'm not sure I'll ever do again - MMMMMM
+
+4. I stumbled a gag that I've done half a dozen times and I lost the audience - BAD.
+
+5. Even though I wrote it down, I didn't do the "Shots fired" gag - AWWWW
+
+6. It's starting to sound like I have my own comedy audience in my head.  Is that good or bad? - \[SILENCE\]
+
+There may have been other good and bad an MMMM points but I didn't notice them because I was a bit drunk.
+
+Other things that I've learned (for some reason, I'm very list-y this morning, maybe it's an inner ear problem).
+
+1. Truth be told, I think I'm getting a bit tired of going out nearly every night and doing comedy and I could really do with a few nights in and a bit of rest. 
+
+2. Truth be told, I think this might be happening to a lot of people this time of year.  The places aren't filled to the gunnels like they were at the beginning of the year - it's a New Year's Resolution thing.
+
+3. I could do with a way of collecting together *all* the jokes that I've written so that I can read them out when I'm in a situation like that where it's just comedians performing to comedians.  Because that is not the time for the genered pronouns material.
+
+4. I'm 92.2 Kilos, so if I can get through today eating the prescribed breakfast and lunch there is a genuine chance that I could make it down to ninety one point something by the end of the week and get the recent weight trend arrow pointing down.  Which is nothing to do with comedy and everything to do with comedy because it's the nights of drinking that have been playing havoc with my weight recently (looking at you Cavendish arms finish a comedy night at 9 o'clock). 
+
+
 ### Joke No. 46 - Surprise Parties
 
 Now you may think that it would be great to know everything through all time. But it does have some drawbacks.  God knew that Bruce Willis was seeing dead people right at the beginning of that movie.
