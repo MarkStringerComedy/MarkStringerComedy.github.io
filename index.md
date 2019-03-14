@@ -5,6 +5,19 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Wednesday 13th March
+
+### Gig No. 20 The Heavenly Comedy, Shepherd's Bush
+
+It's mid March of my year of doing 50 gigs and I'm feeling a lot better than I have been for a while. I've already done 20 gigs. 
+
+I tried to do all new material - although the Jesus stuff is on its 4th outing now. And I'm pretty sure I can get it to work.
+
+I like this night run by Njambi Mcgrath. I can see how people might think it's a bit of a problem doing 5 minutes amongst Njambi's long bits of her own material. But that's the deal! It's her night and it's not a bringer.
+
+I must confess I got the "again, agains" again. I wanted to do it - again. And now I have to wait until the end of next week - although that will give me a chance to write some material and to hothouse it at home.
+
+
 ### Tuesday 12th March 2019
 
 ### Gig No. 19 Comedy 42 - Stoke Newington
@@ -35,7 +48,7 @@ Other things that I've learned (for some reason, I'm very list-y this morning, m
 
 2. Truth be told, I think this might be happening to a lot of people this time of year.  The places aren't filled to the gunnels like they were at the beginning of the year - it's a New Year's Resolution thing.
 
-3. I could do with a way of collecting together *all* the jokes that I've written so that I can read them out when I'm in a situation like that where it's just comedians performing to comedians.  Because that is not the time for the genered pronouns material.
+3. I could do with a way of collecting together *all* the jokes that I've written so that I can read them out when I'm in a situation like that where it's just comedians performing to comedians.  Because that is not the time for the gendered pronouns material.
 
 4. I'm 92.2 Kilos, so if I can get through today eating the prescribed breakfast and lunch there is a genuine chance that I could make it down to ninety one point something by the end of the week and get the recent weight trend arrow pointing down.  Which is nothing to do with comedy and everything to do with comedy because it's the nights of drinking that have been playing havoc with my weight recently (looking at you Cavendish arms finish a comedy night at 9 o'clock). 
 
