@@ -5,6 +5,16 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Saturday 16th March 2019
+
+### Joke No. 47 - What Makes you Laugh or Smile
+This is new material.  What they say is if it makes you laugh or smile, it's probably worth trying out in front of an audience. Good advice. Doesn't apply to your own penis.  That's what the police told me.
+
+### Joke No. 46 - Sexual Fantasies
+Everybody understands there's difference between sexual fantasies and sexual realities don't they?
+
+If my sexual fantasies were realities I'd have to have a gallon of yoghurt and a brick of zinc for breakfast.
+
 ### Wednesday 13th March
 
 ### Gig No. 20 The Heavenly Comedy, Shepherd's Bush
