@@ -288,6 +288,15 @@ I like comedy.  It pushes me outside of my comfort zone.  And to be clear my com
 ### Thursday February 21st 2019
 
 ### Gig No. 11 - Funny Box Live - The Good Intent
+#### Part 1
+
+\(A bit belatedly I got video of this night - the camera work goes a bit whacky sometimes but it's still worth a look\)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MxCc_EbCJBk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+#### Part 2
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Kz8UMFfghlg" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 I have a confession to make. I am a coward and an idiot. OK, the whole thing went a bit weird.  I had rehearsed a 5 minute set pretty solidly because I was expecting some people I knew to turn up as bringers. Then just at the end of day I noticed that actually I was *headlining* and I was supposed to 10 minutes.  So that was a rather hurried session of stitching back in some bits that I thought were maybe to rude to perform in front of my friends.  Then I get to the pub. And the pub is rough as. And the stage where the stand-up is happening isn't in a separate room, it's just at one end of the bar.  And the locals are rough as.
 
