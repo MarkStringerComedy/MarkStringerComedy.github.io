@@ -17,7 +17,7 @@ A very well-run night. One guy ran 11 minutes for a 7-minute spot. The arrogance
 
 Some very funny acts.  Luke Chilton.  Very funny. And a female comedian who I think was called Borgia doing stuff about Frog sex and the Titanic.  I don't think that's how you pronounce Rontgen.  But what do I know?
 
-### Joke No. 49 - Jesus was a stand-up comedian
+### Joke No. 50 - Jesus was a stand-up comedian
 
 But was Jesus a stand-up comedian? He had a pretty weird relationship with his father - my dad, right, he didn't love me, but not only did he not love me, he nailed me to a cross to show my step brothers and sisters how he loved them more.. He spent most of his time with 12 other losers who didn't have jobs just sat around talking about how they were going to be famous. 
 
@@ -25,7 +25,7 @@ Went they went to the wedding at Canaa they all ordered jugs of tap water.
 
 There was this ex-hooker who joined them thinking it might be a good career change. True story. When he'd died pretty much the worst death EVER - he crawled away, hid in a cave for three days and came out and did another gig.
 
-### Joke No. 48 - Financial Advice
+### Joke No. 49 - Financial Advice
 
 He who goes a-borrowing, goes a-sorrowing.
 
@@ -38,9 +38,19 @@ Shakespeare said neither a borrower nor a lender be for borrowing dulls the end 
 
 I think this means that if you're worrying about your financial problems, it's difficult to maintain an erection.
 
-### Joke No. 47
+### Joke No. 48
 
 There's no time like the present - and actually there's no present like time.  Although it's a fucker to wrap. 
+
+### Saturday 16th March 2019
+
+### Joke No. 47 - What Makes you Laugh or Smile
+This is new material.  What they say is if it makes you laugh or smile, it's probably worth trying out in front of an audience. Good advice. Doesn't apply to your own penis.  That's what the police told me.
+
+### Joke No. 46 - Sexual Fantasies
+Everybody understands there's difference between sexual fantasies and sexual realities don't they?
+
+If my sexual fantasies were realities I'd have to have a gallon of yoghurt and a brick of zinc for breakfast.
 
 ### Wednesday 13th March
 
@@ -88,7 +98,6 @@ Other things that I've learned (for some reason, I'm very list-y this morning, m
 3. I could do with a way of collecting together *all* the jokes that I've written so that I can read them out when I'm in a situation like that where it's just comedians performing to comedians.  Because that is not the time for the gendered pronouns material.
 
 4. I'm 92.2 Kilos, so if I can get through today eating the prescribed breakfast and lunch there is a genuine chance that I could make it down to ninety one point something by the end of the week and get the recent weight trend arrow pointing down.  Which is nothing to do with comedy and everything to do with comedy because it's the nights of drinking that have been playing havoc with my weight recently (looking at you Cavendish arms finish a comedy night at 9 o'clock). 
-
 
 ### Joke No. 46 - Surprise Parties
 
@@ -315,6 +324,15 @@ I like comedy.  It pushes me outside of my comfort zone.  And to be clear my com
 ### Thursday February 21st 2019
 
 ### Gig No. 11 - Funny Box Live - The Good Intent
+#### Part 1
+
+\(A bit belatedly I got video of this night - the camera work goes a bit whacky sometimes but it's still worth a look\)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MxCc_EbCJBk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+#### Part 2
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Kz8UMFfghlg" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 I have a confession to make. I am a coward and an idiot. OK, the whole thing went a bit weird.  I had rehearsed a 5 minute set pretty solidly because I was expecting some people I knew to turn up as bringers. Then just at the end of day I noticed that actually I was *headlining* and I was supposed to 10 minutes.  So that was a rather hurried session of stitching back in some bits that I thought were maybe to rude to perform in front of my friends.  Then I get to the pub. And the pub is rough as. And the stage where the stand-up is happening isn't in a separate room, it's just at one end of the bar.  And the locals are rough as.
 
