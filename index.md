@@ -5,6 +5,43 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Wednesday 20th March
+
+### Bringer No. 13 - Monty's bar
+
+A very well-run night. One guy ran 11 minutes for a 7-minute spot. The arrogance of youth (he wasn't funny).
+
+### Monday 18th March 2019
+
+### Bringer No. 12 - Comedy Throw Down or Something at the Hoop and Toy
+
+Some very funny acts.  Luke Chilton.  Very funny. And a female comedian who I think was called Borgia doing stuff about Frog sex and the Titanic.  I don't think that's how you pronounce Rontgen.  But what do I know?
+
+### Joke No. 49 - Jesus was a stand-up comedian
+
+But was Jesus a stand-up comedian? He had a pretty weird relationship with his father - my dad, right, he didn't love me, but not only did he not love me, he nailed me to a cross to show my step brothers and sisters how he loved them more.. He spent most of his time with 12 other losers who didn't have jobs just sat around talking about how they were going to be famous. 
+
+Went they went to the wedding at Canaa they all ordered jugs of tap water.
+
+There was this ex-hooker who joined them thinking it might be a good career change. True story. When he'd died pretty much the worst death EVER - he crawled away, hid in a cave for three days and came out and did another gig.
+
+### Joke No. 48 - Financial Advice
+
+He who goes a-borrowing, goes a-sorrowing.
+
+I think all financial advice should rhyme. (OK, needs more work).
+
+People who invest unwisely in complex financial instruments 
+might find they spend a large chunk of their lives living in tents?
+
+Shakespeare said neither a borrower nor a lender be for borrowing dulls the end of husbandry.
+
+I think this means that if you're worrying about your financial problems, it's difficult to maintain an erection.
+
+### Joke No. 47
+
+There's no time like the present - and actually there's no present like time.  Although it's a fucker to wrap. 
+
 ### Wednesday 13th March
 
 ### Gig No. 20 The Heavenly Comedy, Shepherd's Bush
