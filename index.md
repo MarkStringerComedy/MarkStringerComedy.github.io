@@ -4,6 +4,31 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Friday 29th March 
+I've taken a week off from comedy (doing it anyway) but that also seems to have resulted in taking time off from writing jokes.
+
+No. Bueno. 
+
+So where are some joke fragments. These really are candidates for the "weak joke hospital" but I'm still going to write them down.
+
+### Weak Joke Hospital
+
+Bury your hopes and dreams under the patio - with all the relatives you didn't like.
+
+Sweat shirts? No other kind of clothing gets named after bodily effluvia.  Cum pants? Shit socks? Sputum miniskirts.
+
+
+### Friday 22nd March 
+
+### Bringer No. 14 Rising Stars, King and Queen Fitzrovia
+
+It was a good night without anybody really doing badly.  It was a competition and I was really surprised by who won, it wasn't who I thought was the best act of the night, by a long way.
+
+### Thursday 21st March
+
+### Gig No. 21 - The Cavendish Arms Stockwell
+
+Very good and enjoyable gig. I did all the "Jesus" material and it went down pretty well. As I came off of the stage I got the "again, agains."
 
 ### Wednesday 20th March
 
