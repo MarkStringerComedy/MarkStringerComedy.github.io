@@ -4,6 +4,11 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+### Bringer No. 15 - Big Nose Comedy Boogaloo Highgate
+
+I thought Luke Chilton was hilarious last night. And there was another guy (it normally takes two or three times seeing a comic before I remember their name because I am an awful person) who told some very obvious take-my-wife style jokes but he had a funny attitude. Woman bragging about how much sex you've had? Really? I don't see why that's funny. 
+
 ### Friday 29th March 
 I've taken a week off from comedy (doing it anyway) but that also seems to have resulted in taking time off from writing jokes.
 
