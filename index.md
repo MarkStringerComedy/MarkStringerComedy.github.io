@@ -4,6 +4,17 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+### Joke No. 55 - Eye contact and self-help bit
+
+So I'm just going to take a moment to make eye contact with some of the audience. I'm reading a self-help book at the moment about the importance of eye contact. Ever wonder about that phrase "self-help." If you could help yourself.  Well, then you wouldn't need help. It's even worse if it's a diet book. I need to lose weight. Helping myself is what got me into this situation.
+
+It's about as much use as my buying a self-dress book. I'm self-aware.  I know I can't dress myself. Ok I can put my trousers on and tie my shoe laces like a big boy, but I can't, no matter what I do, I can't manage to look like I didn't just stagger up an embankment after a train crash, in the 1990's.  I think it might have been Potters bar. 
+
+### Joke No. 54 - Physalis
+
+You know when you go to a *moderately* fancy restaurant, with your dessert you sometimes get this little yellow fruit - with like curly leaves.  Do you know what that's called? I didn't and then I did some research that's millenial y'know for typing something into Google. 
+
+It's called Physalis. I'm not surprised the don't shout about what it's called.
 
 ### Sunday 7th April
 
