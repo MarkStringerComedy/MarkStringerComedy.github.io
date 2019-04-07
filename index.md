@@ -5,6 +5,34 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Sunday 7th April
+
+### Joke No. 53 - Worst thing you've ever eaten
+
+You madam.  What's the worst thing you've ever eaten? Was it this guy?
+
+### Saturday 6th April
+
+### Joke No. 52 - #metoo
+
+I'm totally on board with #metoo.  I don't want anybody to do anything that they don't want to do. And I realise that for most women, when it comes to things that they don't want to do, I'm right at the top of the list.
+
+### Joke #51 - Japanese prison camp sex
+
+Yes, I'm stil getting sex.  But I've been with my wife 25 years.  I'm getting sex, like you get food in a World War Two Japanese prison camp. Just at the point when I'm about to drop into a coma. I'm fed a little gruel.
+
+### Weak joke hospital
+
+* I might be an idiot. I see a lot of younger people talking about some particular stupid thing that they've done. I'm 50. I've got files. I've got a CV. 
+
+* I see a lot of open mic female comedians saying that they're single and that they really want to have sex with a man. But I don't think they mean me. 
+
+### Bringer No. 16 - Vauxhall Griffin
+
+It was slightly strange night.  One of those where the requirement for a bringer wasn't that strictly enforced and so everybody ends up performing to a bunch of other comedians. On some nights that can see OK.
+
+I did start to get a little bit of an insight into how gigs are arranged.
+
 ### Bringer No. 15 - Big Nose Comedy Boogaloo Highgate
 
 I thought Luke Chilton was hilarious last night. And there was another guy (it normally takes two or three times seeing a comic before I remember their name because I am an awful person) who told some very obvious take-my-wife style jokes but he had a funny attitude. Woman bragging about how much sex you've had? Really? I don't see why that's funny. 
