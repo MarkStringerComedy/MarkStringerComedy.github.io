@@ -4,6 +4,40 @@
 [Comedy Calendar](calendar.md)
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+
+### Thursday 11th April
+
+### Gig No. 24 - Up the Creek, the Blackout, Greenwich
+
+Nearly half-way to 50 gigs!  Well, this was a disaster in one sense. I didn't last much more than the two minutes. But in another sense it's no big deal getting kicked off stage and I could walk straight out the door and go home.
+
+But it also makes you absolutely clear that you need better material! What it's made me want to do is to want to sit down with my material (or maybe stand up with it) and go over it and see how I can get the "gag count" up. 
+
+The other thing to remember with this is that it's a marathon - not a sprint. 
+
+
+### Wednesday 10th April
+
+### Gig No. 23 Strange Brew Comedy - Deptford
+I've got a recording of this that I'll put up soon. It was OK. I didn't get a huge number of laughs. One thing that I noticed when I listened to the recording was that there were quite a lot of opportunities for interactions with the audience that I missed. 
+
+### Monday 8th April
+
+### Gig No. 22 - King and Queen, Fitzrovia, Rising Stars
+
+Meh performance last night. I didn't really remember the jokes didn't really feel the need to record it. It felt like
+warming up again after having a rest for a few weeks. I started to put together the idea of "Jesus as a stand-up comed
+ian." But I haven't quite managed to get it there yet.  There was a lot of Jesus stuff last night. But I suppose that
+it is nearly Easter.
+
+My last gig was actually 22ndy March - so a *long* time ago.
+
+
+### Joke No. 56 - Curly wurly
+
+Do you know what really straightens my curly wurly?
+
 ### Joke No. 55 - Eye contact and self-help bit
 
 So I'm just going to take a moment to make eye contact with some of the audience. I'm reading a self-help book at the moment about the importance of eye contact. Ever wonder about that phrase "self-help." If you could help yourself.  Well, then you wouldn't need help. It's even worse if it's a diet book. I need to lose weight. Helping myself is what got me into this situation.
