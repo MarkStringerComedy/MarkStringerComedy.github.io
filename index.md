@@ -5,7 +5,6 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
-
 ### Thursday 11th April
 
 ### Gig No. 24 - Up the Creek, the Blackout, Greenwich
@@ -19,8 +18,19 @@ The other thing to remember with this is that it's a marathon - not a sprint.
 
 ### Wednesday 10th April
 
+### Weak joke hospital
+
+I had a fake cake at my wedding.
+
 ### Gig No. 23 Strange Brew Comedy - Deptford
 I've got a recording of this that I'll put up soon. It was OK. I didn't get a huge number of laughs. One thing that I noticed when I listened to the recording was that there were quite a lot of opportunities for interactions with the audience that I missed. 
+<audio controls>
+  <source src="GigTwentyThreStrangeBrewDepford.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTwentyThreStrangeBrewDepford.mp3">link to the audio</a> instead.</p>
+</audio>
+
+GigTwentyThreStrangeBrewDepford.mp3
 
 ### Monday 8th April
 
