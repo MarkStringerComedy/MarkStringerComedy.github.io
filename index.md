@@ -5,6 +5,30 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Bringer No. 17 - Nell of Old Drury
+
+Barely a comedy night. Just goes to show how important all those things are that a compere should make sure happen.
+
+Chairs arranged in rows. Starting at a reasonable time. Microphone that doesn't have an echo, shut down the pub muzak. It was a shame really because the compere had good attitude and good jokes. But she was transparently disinterested in the acts (or some of them). 
+
+The other thing was that just about *every* act talked about Tinder. OK that might be the forefront of your mind, but if you've just sat through half a dozen acts talking about Tinder - do you still want to talk about Tinder?
+
+The other thought that went through my head is that it might be that the world of relationships is changing. When I started doing stand-up comedy, the default comedian was a 19-year-old Australian in a black t-shirt complaining about his girlfriend. Now it's a comedian of any gender complaining about Tinder.  Can't make my mind up if this is progress.
+
+Also, business models for open mic nights keep running through my head.  What about a pay-to-play night where all of the money that the acts pay in (2 pounds a minute up to a maximum of 20 pounds) goes on marketing and you get a share of whatever the bucket is at the end. I would be a good way of figuring out what things work from a marketing point of view (social media marketing? Flyering?). If you did that, one of the conditions / practices could be that *everything* gets recorded on video and put on youtube (this is what hot water comedy does). 
+
+### Saturday 13th April 2019
+### Gig No. 25 - Ken Uncut - Hoop and Toy South Kensington
+
+I'm halfway through my fifty gig quest and it's only April!
+
+But well, this one was awkward. Instructive, but awkward. There were several children in the audience which meant there were a combination of reactions.  One - defiance. Two - tongue-tied attempts to clean up material. Three - talk to the people in the audience. I fell into category two I think (make up your own minds).  But I think the one that worked best was category three.
+<audio controls>
+  <source src="GigTwentyFiveKenUncutHoopAndToy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTwentyFiveKenUncutHoopAndToy.mp3">link to the audio</a> instead.</p>
+</audio>
+
 ### Thursday 11th April
 
 ### Gig No. 24 - Up the Creek, the Blackout, Greenwich
