@@ -5,6 +5,13 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+
+### Gig No. 26 - TNT Comedy
+
+OK, I've got to be honest with you. Gig 25 was weird (Gig 24 wasn't that great either) and I totally failed to connect with the audience. Gig 26 felt like I was pushing wet cardboard out of my mouth instead of jokes. I'm reading a book - "Be Heard Now!" by Lee Glickstein which is all about how the most important thing about stand-up comedy is being authentic, but I don't know how I can make that work with the business of sitting down and writing actual jokes which is a totally artificial activity. Gah!
+
+Be yourself they say. But be your best self! I have no idea what any of that means any more. Melt-fucking-down.
+
 ### Bringer No. 17 - Nell of Old Drury
 
 Barely a comedy night. Just goes to show how important all those things are that a compere should make sure happen.
