@@ -5,6 +5,135 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 32
+### Rising Stars - King and Queen, Fitzrovia
+
+I didn't record this one. It was trying something different - telling a story and a joke about the devil. I 
+was slightly spooked by listening to a gig of myself from seven/eight years ago that, if I'm being truthful, sounded better than I do now. Yes, that's right, I'm in a bit of a dip when it comes to comedy. 
+
+But maybe the main lesson from listening to that clip is, if I was that good then, imagine how good I would be today if I'd kept on going rather than giving up for no specific reason. I'm only 18 gigs away from my stated goal of 50 gigs for the year. But clearly the only way to get really good at this is to do more than that. 
+
+I feel becalmed. I know this is a plateau. 
+
+I did have a thought though, that because I normally don't work Fridays, maybe it would be a good idea to try to cram as many gigs as possible into the weekends. Thursday night, Friday Night, Saturday afternoon (and evening) Saturday afternoon (and evening). 
+
+This is what I often end up resolving to do when I'm struggling with something - try really, really, hard.
+
+I'm wondering what the alternative is, there's idea that I came across in business called the "Fifteen percent solution".
+
+Which is what can you do if you try just a bit harder rather than a *lot* harder. I'm thinking that the fifteen percent solution involves talking out loud to your self.
+
+1) Write something down that you think is funny (scratch that, you could get stuck on that)
+
+SCRATCH THAT
+
+1) If you can't do that. Just write down some words. 
+
+2) Say those words, either the joke, or the words TEN times
+
+3) Vary those words
+
+4) Move, do actions. Shout scream.
+
+Write down any glimmer of a joke. 
+
+Now that you're feeling a little looser, try some actual material.
+
+I just tried this and it made me feel very good. It taught me a lesson. Don't mope. Don't resolve to TRY hard. Just do a little bit of something. 
+
+
+
+## Joke No. 59
+
+[Elephant in the room] I used to do that bit because I used to be genuinely confused about what you find in the gents sometimes.  Then I took a course of wide spectrum antibiotics. I must admit, I have fled the scene of some of the things that I've done while taking those fuckers. 
+
+They're building a super sewer from the centre of london, it runs 20 miles to the sewage works in Beckton in East London. Some people who are saying why do we need a super sewer that doubles the capacity of London's sewerage system? Why? Because three people in central London are taking wide spectrum anti-biotics, that's why. 
+
+Wide spectrum anti biotic turd - or WiSABIT versus fatberg.  You do NOT want to see that movie. Turdzilla versus the blob. 
+
+### Joke No. 58
+
+When you find a lump on your balls - that's an unexpected item in shagging area.
+
+#### Weak joke hospital
+
+Unexpected item in gagging area (something to do with oral sex).
+Unexpected item in nagging area (something to do with wife).
+
+
+### Friday 3rd May - Comedy Be East, the Beehive Bow
+### Gig No. 31
+
+My material was OK, but what was interesting about this evening was that there were several other comedians who were clearly just a bit further on in their comedy journey doing 10 minute spots at the beginning of the night before they went on to bigger and better things elsewhere (in the evening? in their careers?).
+
+It's made me feel that I need to do the equivalent of bring the motorbike into the kitchen and take it apart. All the bits need to go on the floor.
+
+The other thing that I can do that I haven't been doing is hothouse, hothouse, hothouse (this is my fancy term for practicing). 
+
+### Wednesday 1st May - Heavenly Comedy, Princess Victoria, Stoke Newington
+
+### Gig No. 30
+<audio controls>
+  <source src="GigThirtyHeavenlyComedyShepherdsBush.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtyHeavenlyComedyShepherdsBush.mp3">link to the audio</a> instead.</p>
+</audio>
+
+I had 10 minutes because I'd arranged a bringer, so things were all set up to do new material, but then I didn't initially, I don't know why. Then I got round to the new material, but it didn't mesh with the stuff that I'd done before. I've had this experience before. It feels like if you're doing polished stuff and new material you're using slightly different bits of your brain.
+
+There was a lot of nerdiness (a massively over-long bit about films with stamp collecting enthusiasm thrown in). And quite a lot of daddy-didn't-love-me last night. But in and amongst it was some quite interesting stuff.
+
+There was a guy who was a tree surgeon who lead with a bunch of not funny DDLM but then turned out to be a really good story teller (with an amazing story about bashing dodgems with a terminally ill kid). 
+
+### Tuesday 30th April - Comedy 42, Fanny's Bar Stoke Newington
+### Gig No. 29
+
+I did some totally new material and it went down very well. What I was particularly proud of was an ad lib with someone in the audience. It wasn't a big thing, but I'm really proud of it. 
+
+When it works at Fanny's bar, it's a very good feeling.  I'm a big fan of Vittorio Angelone, the promoter and compere. 
+
+<audio controls>
+  <source src="GigTwentyNineComedyFortyTwo.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTwentyNineComedyFortyTwo.mp3">link to the audio</a> instead.</p>
+</audio>
+
+
+### Sunday 28th April 
+
+### Gig No. 28 - Rising Stars, King and Queen, Fitzrovia
+
+What a much better gig.  A much better gig than at Funny Feckers, quite simply because there were some people in the audience who seemed to get me! But also such a contrast with last week, where I was really just struggling to get the words out of my mouth. It's the same material, but now it feels like it's turning into something. 
+
+<audio controls>
+  <source src="GigTwentyEightRisingStars.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigTwentyEightRisingStars.mp3">link to the audio</a> instead.</p>
+</audio>
+
+
+### Thursday 25th April
+
+### Gig No. 27 - Funny Feckers, the Constitution Camden
+
+This gig was complicated by my "Bringers" being my wife, my brother-in-law, my 13-year-old nephew and his friend. And totally unexpectedly an old friend of mine turned up as well (this is why it's good to give notice in advance on social media). I had totally not felt my last gig, and then the following night given one a miss due to "exhaustion" (I really just felt totally knackered and couldn't be arsed). 
+
+Funny Feckers is in the top-rank of bringer gigs and the place was packed. I was convinced at half-time that my bringers would want to leave - not because the acts were bad, but because some of the acts were utterly filthy! But they all stayed. Thanks very much to them.
+
+So I gave the Jesus/Toto material an outing (I'll post a video when I get it). It filled me with renewed enthusiasm for doing stand-up. And I realised that maybe what I need to do is to experiment with listening more closely to the audience. But also, I need to write more jokes!
+
+### Tuesday 23rd April
+
+### Bringer No. 18 - Big Nose Comedy - Two Tribes Brewery
+
+This is a type of gig that's turning out to be familiar. Actually several types of gig at the same time. Compere in a tiff with the venue. Supposedly a bringer, but many of the bringers mysteriously didn't show up - and the other bringers are comics. So it boils down to (actually this was a brewery so there was some actual boiling in the background) open mic comedians talking to other open mic comedians and any real punters feeling like Jehova's witnesses who've accidentally turned up to Tourette's syndrome support group.
+
+But curiously it kind of restored my faith in stand-up. There were some friendly faces and there were also some funny jokes. 
+
+### Joke No. 57
+
+Friedriech Nietzsche said that when you look into the void, the void looks into you. But in Yorkshire, when you look into the void, the void says "what are you fucking looking at?"
+
 
 ### Gig No. 26 - TNT Comedy
 
