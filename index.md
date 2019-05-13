@@ -5,6 +5,10 @@
 
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 60
+
+A naked egg (recently separated) walks into a bar and the barman says - "Is this some kind of yoke"?
+
 ### Gig No. 32
 ### Rising Stars - King and Queen, Fitzrovia
 
