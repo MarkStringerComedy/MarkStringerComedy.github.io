@@ -2,6 +2,7 @@
 # [Mark Stringer Comedy](index.md)
 
 [Comedy Calendar](calendar.md)
+<br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
 ### Gig No. 37 Comedy Virgins, The Cavendish Arms, Stockwell
