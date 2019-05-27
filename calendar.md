@@ -1,6 +1,6 @@
 # [Mark Stringer Comedy](index.md)
 
-![Calendar Banner](CalendarBanner2.png)
+<img src="CalendarBanner2.png" align="center"/>
 
 <br>
 
