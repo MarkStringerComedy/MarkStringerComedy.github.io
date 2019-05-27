@@ -1,0 +1,4 @@
+#!/bin/bash
+cp ~/Downloads/'Voice 026_sd.m4a' .
+cp ~/Downloads/'Voice 027_sd.m4a' .
+cp ~/Downloads/'Voice 028_sd.m4a' .

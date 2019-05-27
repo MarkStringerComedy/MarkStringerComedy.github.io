@@ -2,14 +2,87 @@
 # [Mark Stringer Comedy](index.md)
 
 [Comedy Calendar](calendar.md)
-
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
+
+### Gig No. 37 Comedy Virgins, The Cavendish Arms, Stockwell
+### Sunday 26th May 2019
+
+I'm still on this "tight five" stuff.  So it doesn't help that here, I think I went on to about six minutes. Again. I'm starting off well, but then it's tailing off quite badly.
+
+What I think I need to do about this is to practice, not in front of an audience, but it front of a mirror and a video camera and a microphone. 
+
+<audio controls>
+  <source src="GigThirtySevenComedyVirgins.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtySevenComedyVirgins.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Gig No. 36 Agile Stand-up
+### Thursday 23rd May 2019 
+
+This was a bit different because it wasn't a stand-up gig. It was an Agile gig (that's my day job) - but using an open mic format. I was the compere, and it's the first time I've ever compered a gig.
+
+Some things that I realised:
+
+* You need material. Especially you need something that you can go into if there's a delay setting up or soemthing like that. 
+* You need to warm the audience up, even if it's not a comedy gig. But what you need to do is something simple, so they don't have to think.
+* I would absolutely love to do the Agile stand-up thing again, and I would absolutely love to compere a real gig.
+
+### Gig No. 35 Strange Brew, Little Faith Brewery, Deptford
+Wednesday 22nd May 2019
+
+I like this gig and this week it went well. Having taken Lewis Schaffer's comments to heart, I have, for the moment, given up on the "bonobo" material and gone back to trying the "tight five".  Of course, the problem with the "tight five" is that it's really only a tight three and a half.
+
+<audio controls>
+  <source src="GigThirtyFiveStrangeBrewComedyDeptford.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtyFiveStrangeBrewComedyDeptford.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Joke No. 62
+I can't talk about football.  It's like not being able to speak bloke.  When I get in a black cab, to be honest, I'd rather the taxi driver talks about racism rather than about football. At least then I can have an opinion.
+
+### Gig No. 34
+### Sunday May 20th
+### The King's Head, London Bridge
+
+What a wild night with Lewis Shaffer - I wasn't very funny again.  It's a good night for finding out that what you're doing isn't funny because the best comedian of the evening gets given a prize at the end of the evening and I was nowhere near. 
+
+Lewis goes on a *bit* about his dietary theories, but apart from that, it's a very good night. I got again, again, for the night, even if I didn't get it for my comedy (needs work).
+
+Also - Ayn Rand? Pronounced "INE" Rand. Like in "fine", or "mine."
+
+And Jim Carrey got into anti-vaxxing because of his girlfriend.
+
+
+### Gig No. 33
+### Sunday May 19th
+### Rising Stars - King and Queen, Fitzrovia
+
+I'm doing this idea I have for a new bit. I'd say it's more of a one-man-show bit than a five-minute open spot bit.
+
+It's about men and women's different reactions to porn. I think there are some jokes in there, but it's very different to other stuff that I've been doing. 
+
+<audio controls>
+  <source src="GigThirtyThreeRisingStarsFitzrovia.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtyThreeRisingStarsFitzrovia.mp3">link to the audio</a> instead.</p>
+</audio>
+
+
+
+### Joke No. 61
+
+I find incest porn really [pause] uninspiring.
+
+Jesus guys - aren't your christmases awkward enough? 
 
 ### Joke No. 60
 
 A naked egg (recently separated) walks into a bar and the barman says - "Is this some kind of yoke"?
 
 ### Gig No. 32
+### Sunday May 12th
 ### Rising Stars - King and Queen, Fitzrovia
 
 I didn't record this one. It was trying something different - telling a story and a joke about the devil. I 
