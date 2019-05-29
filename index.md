@@ -5,6 +5,10 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Joke No. 62
+
+I really love the wall in my garden. See it goes up vertically for about 6 feet then it goes horizontally for about 6 inches. Then it goes up vertically for another couple of feet.  What a ledge!
+
 ### Gig No. 37 Comedy Virgins, The Cavendish Arms, Stockwell
 ### Sunday 26th May 2019
 
