@@ -5,6 +5,33 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 39
+### Thursday 6th June
+### Can't Duch This, The Duchess Bell, Battersea
+
+I liked this one.  I went on first - which is getting to be a bit of a habit. But it went very well.
+
+I've now got, I would say 10 minutes of "strong" material. As I near 40 gigs. Feeling positive.
+
+<audio controls>
+  <source src="GigThirtyNineCantDuchThisBattersea.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtyNineCantDuchThisBattersea.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Gig No. 38
+### Thursday 30th May
+### Bignose Comedy, the Boogaloo Highgate
+
+What a riotous evening. Like David's style of compereing a *lot*.
+
+<audio controls>
+  <source src="GigThirtyEightBigNoseComedy.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigThirtyEightBigNoseComedy.mp3">link to the audio</a> instead.</p>
+</audio>
+
+
 ### Joke No. 62
 
 I really love the wall in my garden. See it goes up vertically for about 6 feet then it goes horizontally for about 6 inches. Then it goes up vertically for another couple of feet.  What a ledge!
