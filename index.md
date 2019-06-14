@@ -5,6 +5,40 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 41 - As Seen On TV - Zebranos Soho
+### Monday 10th June 2019
+Listening back to this it didn't go as well as I though it did. When I first did this oral sex stuff it had a cheekiness to it that it seems to have lost. Part of that is that I think I need some interaction with the audience to start with. 
+
+Ah well. The thing about doing something more than just a few times and getting beyond the "Dog walking upright on it's hind legs - wow look what he's doing! - stage" is that there are plateaux. And do you know what, with just about everything in my life, when I've got to the plateau, I've lost interest.
+
+But sitting in Monty's bar one night earlier this week (they do all blur into one), it was a night when I was just a bringer. I was thinking. I want to be good at this. 
+
+I haven't really cared too much about being good at anything else. But this.  I'd quite like to be good at this. And I know that I'm not that good.  And I would really like to be better.
+
+<audio controls>
+  <source src="GigFortyOneAsSeenOnTVZebranosSoho.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFortyOneAsSeenOnTVZebranosSoho.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Joke no. 64
+We all come from a shit hole. Well, near a shit hole. We all come from a vagina. 
+
+What would Freud say about that joke? Well, if the most profound question of your whole career was "What do women want?" I think we can safely guess that the answer was "Not you Ziggy."
+
+### Gig No. 40 - Rising Star - King and Queen Fitzrovia
+### Sunday 9th June 2019
+Listening back to this I think it went a lot better than I thought it did.  Also, I need to have confidence in the jokes at the end. Also, my friend Stephen Portlock has taught me that if you're going to do something (like audience participation) you should totally go for it (at least that's what Logan Murray told him). And I don't think I'm doing that.  And I think I should.
+<audio controls>
+  <source src="GigFortyRisingStarsFitzrovia.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFortyRisingStarsFitzrovia.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Joke no. 63 
+### Weak joke hospital 
+Have you ever seen a job description for a blow job?
+
 ### Gig No. 39
 ### Thursday 6th June
 ### Can't Duch This, The Duchess Bell, Battersea
