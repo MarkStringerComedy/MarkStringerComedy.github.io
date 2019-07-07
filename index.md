@@ -5,6 +5,30 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 43 - Can't Duch this - The Dutchess Bell, Batersea
+### Friday 6th July 2019
+Almost entirely new maerial. It didn't even occur to me to record it.
+
+I thought some of the jokes went really well (especially the first one). 
+
+I've got another git tonight, which is *not* a bringer and I'm wondering if I should hothouse the five minutes that I did on Friday or I should go back to one of the "tight" fives. 
+
+### Gig No. 42 - Can't Duch This - The Dutchess Belle, Battersea
+Well, I think that the hothousing went very well indeed. And what happened is that I slowed things down. And listening back to the tape, I'm wondering if towards the end of the five I could slow things down even more. 
+
+What it makes me want to do is do *more* hothousing. But also, it makes me think that I need to do more writing because now I have a "system" for taking new material to fruition.
+
+1. Write something
+2. Try it out in front of an audience at an obvious new material night
+3. Hot house it.
+4. Repeat steps 2. and 3. until offered O2 one man show.
+
+<audio controls>
+  <source src="GigFortyTwoCantDuchThisBattersea.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFortyTwoCantDuchThisBattersea.mp3">link to the audio</a> instead.</p>
+</audio>
+
 ### Gig No. 41 - As Seen On TV - Zebranos Soho
 ### Monday 10th June 2019
 Listening back to this it didn't go as well as I though it did. When I first did this oral sex stuff it had a cheekiness to it that it seems to have lost. Part of that is that I think I need some interaction with the audience to start with. 
