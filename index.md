@@ -5,6 +5,62 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+### Gig No. 47 - Big Spoon Comedy - Vauxhall - Wednesday 17th July 2019
+<audio controls>
+  <source src="GigFortySevenBigSpoonComedyVauxhall.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFortySevenBigSpoonComedyVauxhall.mp3">link to the audio</a> instead.</p>
+</audio>
+
+### Gig No. 46 - Monty's Bar - Tuesday 16th July 2019
+<iframe width="560" height="315" src="https://www.youtube.com/embed/I01crl7mva4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+### Gig No. 45 - Monty's Bar - 9th July 2019
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/foRjnUNysbU" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+It's been interesting to listen to a good number of Richard Herring's Leicester Square podcasts over past few weeks.
+
+Some things that are obvious when you think about it are also easy to forget. 
+
+1. If you do this comedy lark, you might get really famous. Also some of the people that you do it with might get a *lot* more famous than you and you might go pretty much nowhere. That's hard to take. 
+
+2. It might be interesting to talk about the stuff that you don't like, and the stuff that you don't like might annoy you a lot, but it's not entertaining to anyone but you. There really is no value in going on about the stuff that you don't like in public (this is a problem Richard Herring has). Talk about the stuff you like. Just ignore the stuff that you don't like. 
+
+3. In theory we should be doing the comedy for the fun and the mucking about, but we always seem to be hanging around with people who are crazy, or who are *not* enjoying themselves. 
+
+4. Promoters are exploiting you. This is the case at bringer gigs, it's the case at more professional gigs. It's still the case when you're on telly. One way of thinking about this is that if you're on stage either you're making money for yourself and someone else, or someone is losing money.
+
+You are a comodity. And making sure that you get the best deal that you possibly can out of their exploitation is extremely difficult, well, I find it extremely difficult. One of the problems that Richard Herring seems to have had is that he's stayed with the same management company - and I think that might be why he doesn't get on panel shows, etc. In one episode of the podcast Stuart Lee, his former partner who's now a lot more successful, mocks him for taking shows to Edinburgh that don't make money.
+
+Do you know I wish I'd know this about work in general when I was much younger. It might have explained a lot of the miserable feelings that I had about work. Of course you feel miserable about it, you're giving far more than you're getting. You're being expoited. And when you try to do anything about it all you get is a stream of utter bullshit about hard work being its own reward. 
+
+5. In theory we're doing this for the pure joy of making people laugh. But there are quite a lot of people on the open mic circuit who are doing it for some other reason. A massive, massive number of them want to use it to talk about their sexuality (weirdest example of this I've seen so far is a middle aged woman who was making - ha! - "jokes" about how she likes to tie up little boys). A massive, massive number of people want to talk about their racial heritage or their mixed race.
+
+I have no problem with *almost* all of this as subject matter. Actually, there are a couple of things that I straight-forwardly don't find funny. I don't find jokes about having sex with kids funny, on the whole. No that's not true. I don't find jokes about having sex with kids funny, if the person who's telling the joke is clearly getting off on the idea of having sex with kids. I don't mind jokes about violence to women - I can't think what a funny one would sound like, but if it involved a bazooka and Anne Widdicombe - it would probably be funny. But again, almost *all* the jokes that you hear that involve violence to women are being told by a guy who is clearly getting off on the idea of hitting a women. 
+
+And here's where it gets even weirder. Sometimes, the person who's telling the joke about hitting women is dressed as a woman (true story). Sometimes the guy telling "kicking down" jokes about homeless people is from a group who are also often the butt of jokes (I'm thinking here about a particular comedian who starts his set by proclaiming that he's autistic).
+
+#### Deep breath
+
+Why am I telling you all of this?
+
+All of this is preamble to telling you that I am snowflaking badly after a gig on Tuesday. And today is Friday and I'm still smarting. What happened? I did the gig at Monty's and I did a bit about reading a book about oral sex. In it I talk about the slightly weird suggestion that you should put your top teeth on the clitoris and hum. 
+
+I've got to admit that the compere wasn't very complimentary after my set, somehow, talking about oral sex that night didn't seem to sit right with people. He made a crack about me being a very sex man (i.e. I'm really not). And I know I'm *very* touchy about that. 
+
+Then a female comedian came on and talked directly to me in the audience and said something like "you should *never* bit a women's clitoris." And I found that really upsetting. Because I feel that it puts me in the same category as the
+guys who do jokes about violence against women. And I never said that. Then she did a lot of jokes about what "White men" like (Winston Churchill apparently). But all the way through she was very angry. 
+
+But do you know what I think this was? And do you know what I think this shows? It shows something that's really obvious from watching a lot of stand-up. That the impetus to get up there is some kind of trauma - not for *everybody* but for a *lot* of people. I don't really talk about my parents in my set and I know that talking about mummy issues just doesn't get laughs, so the only joke that I would do about that - "When you're at the automated checkout at Marks and Spencers buying your craft beer and the checkout lady says 'Approval needed'" Is it OK to should ***that's because Daddy didn't love me!!!*** .
+
+But you can tell that a lot of comedians are up there because of something to do with their dad - because that's what they talk about. Or because of something to do with their race - there are a *lot* of mixed-race comedians. Or because of some sexual yearning - that's me. 
+
+### Gig No. 44 - South Kensington Comedy - The Hoop and Toy
+### Sunday 7th July 2019
+
+I don't know any more.  I should listen back to the tape. I thought I had a "tight five" and I got nowhere with it tonight. The wall/ledge joke works though!
+
 ### Gig No. 43 - Can't Duch this - The Dutchess Bell, Batersea
 ### Friday 6th July 2019
 Almost entirely new maerial. It didn't even occur to me to record it.
