@@ -5,6 +5,15 @@
 <br>
 **This a record of my attempt to perform 50 open mic comedy gigs in 2019.  I also want to write 180 jokes (3 jokes a minute? hey! that's a one hour show).  I want to laugh a lot - and who knows? Maybe make somebody else laugh as well.**
 
+
+### Gig No. Fifty Something - Strange Brew Comedy - Wednesday 6th November 2019
+OK, OK, I made it to fifty a while ago and then I stopped counting, and then I stopped gigging! But here's me coming back to it after a little break.
+<audio controls>
+  <source src="GigFiftySomethingStrangeBrewDeptford.mp3" type="audio/mp3">
+  <p>Your browser doesn't support HTML5 audio. Here is
+     a <a href="GigFiftySomethingStrangeBrewDeptford.mp3">link to the audio</a> instead.</p>
+</audio>
+
 ### Gig No. 49 - Riffin and the Griffin - Friday 19th July 2010
 Oh man, I didn't do 5 minutes! I went down well here. But sometimes this stuff feels like trying to juggle while surfing.
 <audio controls>

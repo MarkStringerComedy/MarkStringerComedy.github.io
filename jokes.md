@@ -1,3 +1,142 @@
+## Growing up in a shithole
+
+Lots of people say that they grew up in a shithole - and I think they're sort of wrong and they're sort of right. See I don't think it's the place. Yorkshire, rural Somerset, East London, wherever. I don't think it's the place. I think it's childhood.  Childhood is the shithole.
+
+You have no money, you have no control and you're entirely financially and emotionally dependent on these grownups for whom you're an emotional and financial drain. And when you're an adult you, well at lease to some degree you have control over who you hang around with. When you're a kid it's your family and other schoolkids. And other schoolkids are like most people. Most people are fucking awful. When you're a grown up you can avoid most people. You can stick to the ones that you like. 
+
+## Joke fragment
+
+Blunt force Norma
+
+## Blue Man Routine
+
+Mum 
+
+Issues
+
+Dad
+
+Dead (gravestone)
+
+Tissues
+
+Tinder
+
+Is
+
+A
+
+Bit
+
+Shit
+
+I hear
+
+Body
+
+Image
+
+Fat
+
+At 
+
+My 
+
+Next 
+
+Birthday
+
+I
+
+Will
+
+Be
+
+An
+
+Age
+
+I'm 
+
+An
+
+Ethnic Identity
+
+That Means
+
+Cliche
+
+Ha Ha Ha Ha
+
+I'm 
+
+Not
+
+Confident
+
+About
+
+My
+
+Dick size
+
+Boris 
+
+Johnson
+
+Is
+
+A 
+
+Cunt
+
+## Joke No. 81
+
+Everybody's getting excited about a sex robot.
+
+Tell you when I'll get excited, when there's a *relationship* robot. That would be some fucking clever AI. 
+
+Yeah you can make a robot that can lie there and think of Silicon Valley, go ooh ahh. I want a robot that when my wife comes to me with two swatches for curtain material, can pick the right one. You haven't got that yet Zuckerberg. You fucking haven't. 
+
+I want a robot that perks up when it here's 
+
+"What's wrong"
+"No, nothing"
+
+I want a robot that right in my ear goes "Dude! There's something wrong. You'd better find out what you've done. Right now!"
+
+
+## Joke No. 80
+For me, Brexit is like waking up with the worst hangover I've ever had. The worst hangover I've ever had was in freshers week at university. I don't really remember much about the night before, but we were drinking things called "Pan galactic gargle blasters" - it was the eighties, it was Green and it came in a pint glass.
+
+And the morning after, I woke up, and realised I'd thrown up over nearly half of my bed and so I tried to move away from it and then realised that I'd shat all over almost all of the other half. And so what I did was curl up into a smaller foetal shape, in the tiny sliver of my bed that wasn't covered in diarhhoea or vomit and went back to sleep. 
+
+That's how I currently feel about Brexit. At some point Britain is going to have to clear all this up.
+
+At some point Britain is going to have to go downstairs, ask the bursar for a clean set of sheets - and a new mattress. And then go in to breakfast with all of the people who saw you being carried horizontally into your room the night before shouting "I'm a little teapot suck my spout!" At the bursor. 
+
+And then maybe two weeks later your room mate, who's a six foot skinhead from Watford is going to come home one night similarly inebriated and try to bugger who - sticking with this as a Brexit metaphor, I think that's Russia.
+
+## Joke No. 79
+You know when you go back to home and nobody's updated your mum's PC and it's caught loads of viruses?
+
+That's what it feels like sometimes when you're talking to friends now.
+
+## Joke No. 78
+Laugh and the world laughs with you.
+
+Ha, ha, ha! Apparently not.
+
+## Joke No. 77 
+
+It takes two to Tango - and a minimum of six plus a fool for Morris dancing.
+
+## Joke No. 76
+Americans different names for things. Courgette - zucchini. Aubergine - egg plant. What they call Rutabaga, is what we'd call a Swede - if we didn't call him Sven.
+
+### Joke No. 75 
+Where the best place to hide a sociopath with daddy issues? An open mic comedy night!
+
 ### Joke No. 74
 Whenever I travel wherever I go, as I tiny rebellion when I'm in the hotel room I pee in my kettle.
 
